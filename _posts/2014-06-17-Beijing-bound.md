@@ -5,7 +5,7 @@ title: Beijing Bound
 
 It’s 4:07AM here in Beijing. Adri and I arrived a few hours ago and just got back from eating the most delicious 4AM food I’ve ever had in my life. That’s the reward for a 24 hour journey, I suppose.
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-04.jpg “Folding”)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-04.jpg "Folding")
 
 Our plane&mdash;a new flight from San Francisco direct to Chengdu&mdash;was something that called itself a “Dreamliner,” which roughly translates as “newish airplane made with composite materials that features really awesome windows that work sort of like those glasses that automatically turn into sunglasses when they get hit by the sun except you can control the tint with buttons at your seat.”
 
