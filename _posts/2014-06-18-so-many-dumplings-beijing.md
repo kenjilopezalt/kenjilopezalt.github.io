@@ -57,7 +57,7 @@ Some other vastly under-informed generalizations I made about Beijing in my head
 * Despite the very clear “No Swimming, No Fishing, No Climbing, No Littering” signs posted around the gorgeous Qian Hai Lake in the center of Beijing, <em>everybody</em> swims and fishes, and you’ll see the occasional climber and litterer as well. Actually, I’m surprised that all the swimmers didn’t get caught on the hooks of all the fishers.
 * The old-lady-with-shopping-cart-on-a-mission brigade that made me fear for my ankles on a daily basis during my commute in New York exists in real China too, but is augmented by the motorbike and bicycle brigade (I’m convinced that the Chinese characters painted on the street in what appears to be a motorcycle lane say “not for use, please drive on sidewalk”).
 
-<small>*There was a watershed moment some time in the last decade in which these groups of tourists ceased being Japanese and became Chinese. Old couples wearing matching Disney World sweatsuits are still Japanese, though I’ve seen a few old Chinese couples wearing matching Disney World <em>knockoff</em> sweatsuits (you’ve heard if Mikey and Mimi Mouse, right?).<small>
+<small>*There was a watershed moment some time in the last decade in which these groups of tourists ceased being Japanese and became Chinese. Old couples wearing matching Disney World sweatsuits are still Japanese, though I’ve seen a few old Chinese couples wearing matching Disney World <em>knockoff</em> sweatsuits (you’ve heard if Mikey and Mimi Mouse, right?).</small>
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140618-beijing-hutong-steamed-bun-dumpling-pig-/20140618-beijing-hutong-steamed-bun-dumpling-pig-18.jpg “”)
 
