@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Example content
+title: SO MANY DUMPLINGS
 ---
 
 SO MANY DUMPLINGS.
@@ -33,10 +33,10 @@ When our bill arrived, we were pretty sure that we hadn’t just consumed 49 Yua
 
 Some other vastly under-informed generalizations I made about Beijing in my head today (maybe other people can verify their accuracy):
 
-<ul><li>Turns out that if you see a large group of tourists in fishermen’s hats following an umbrella-toting tour guide, even in China the tourists are Chinese.*</li>
-<li>Off of the main streets, there are no restrooms in restaurants or cafes. You have to use the communal toilets on the street, and for the record, most of them are door-less squat toilets with BYOTP (Bring Your Own Toilet Paper) status. The only reason you should use them is if you ate some questionable scallion pancakes earlier in the day. A packet of tissue paper and a bottle of hand sanitizer should be in your bag at all times.</li>
-<li>Despite the very clear “No Swimming, No Fishing, No Climbing, No Littering” signs posted around the gorgeous Qian Hai Lake in the center of Beijing, <em>everybody</em> swims and fishes, and you’ll see the occasional climber and litterer as well. Actually, I’m surprised that all the swimmers didn’t get caught on the hooks of all the fishers.</li>
-<li>The old-lady-with-shopping-cart-on-a-mission brigade that made me fear for my ankles on a daily basis during my commute in New York exists in real China too, but is augmented by the motorbike and bicycle brigade (I’m convinced that the Chinese characters painted on the street in what appears to be a motorcycle lane say “not for use, please drive on sidewalk”).</li></ul>
+* Turns out that if you see a large group of tourists in fishermen’s hats following an umbrella-toting tour guide, even in China the tourists are Chinese.*
+* Off of the main streets, there are no restrooms in restaurants or cafes. You have to use the communal toilets on the street, and for the record, most of them are door-less squat toilets with BYOTP (Bring Your Own Toilet Paper) status. The only reason you should use them is if you ate some questionable scallion pancakes earlier in the day. A packet of tissue paper and a bottle of hand sanitizer should be in your bag at all times.
+* Despite the very clear “No Swimming, No Fishing, No Climbing, No Littering” signs posted around the gorgeous Qian Hai Lake in the center of Beijing, <em>everybody</em> swims and fishes, and you’ll see the occasional climber and litterer as well. Actually, I’m surprised that all the swimmers didn’t get caught on the hooks of all the fishers.
+* The old-lady-with-shopping-cart-on-a-mission brigade that made me fear for my ankles on a daily basis during my commute in New York exists in real China too, but is augmented by the motorbike and bicycle brigade (I’m convinced that the Chinese characters painted on the street in what appears to be a motorcycle lane say “not for use, please drive on sidewalk”).
 
 <small>*There was a watershed moment some time in the last decade in which these groups of tourists ceased being Japanese and became Chinese. Old couples wearing matching Disney World sweatsuits are still Japanese, though I’ve seen a few old Chinese couples wearing matching Disney World <em>knockoff</em> sweatsuits (you’ve heard if Mikey and Mimi Mouse, right?).<small>
 
