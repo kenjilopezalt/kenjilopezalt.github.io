@@ -25,60 +25,60 @@ Fortunately, just as we were about to submit to fate and enter the brightly lit 
 
 I find that with most restaurants, it’s pretty easy to negotiate a deal even if you don’t speak a common language. Point at something, rub your first two fingers and thumb together (the universal symbol for “how much?”), nod in approval, and you’re good to go. This gets complicated when what you are trying to order is small pieces of meat on a stick. Does five fingers mean five pieces of meat per stick? Or does it mean five sticks? Or perhaps it means five yuan (about 75¢) for one stick? Or perhaps five yuan for five sticks, each with five nubs of meat?
 
-‘![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-02.jpg “Folding”)
+‘![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-02.jpg "Folding")
 
 We planned for the worst and hoped for the best and ended up getting more than we thought we would.
 
 First up, a plate of peanuts, boiled in salted water flavored with star anise. I’ve never loved boiled peanuts, but these guys were tasty, and a good accompaniment to the incredible cheap beer. Ah, Beijing, where the beer flows like wine.
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-01.jpg “Folding”)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-01.jpg "Folding")
 
 Next, our skewers. Turns out it was three skewers, each with five pieces of meat, and each for 5 Yuan. Not a bad price, especially considering this was some of the tastiest street-meat-on-a-stick I’ve had anywhere. Alternating cubes of lean lamb meat and straight-up lamb fat, seasoned generously with salt, cumin, and ground red chili. The fat cubes were crisped up like the edges of a perfectly-cooked steak, rendering their juices over the lean meat. Our hosts, who very politely offered us cigarettes when they lit up (I can’t remember the last time I saw someone smoking in a restaurant, but I’d guess the opposite is true for Beijing residents) got a kick out of saying “you’re welcome,” when I sheepishly offered a <em>xiexie</em>. It was the least I could do for such tasty lamb.
 
 Walking down the dark street back towards our hostel, I had just finished telling Adri that barring the loud noises and incessant loogie-hocking, China and I were going to get along just fine when we spied a man and woman bent over, working in front of a giant wok set over a roaring gas flame, steam rising in a thick plume through a forest of metal steamers.
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-06.jpg “Folding”)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-06.jpg "Folding")
 
 <em>OMG, this is everything I hoped and wished for</em>, I said to myself. As we got closer we saw the duo cutting off balls of fresh, stretchy dough, rolling them out on a floured table top, stuffing them out of a big bowl of seasoned pork, and pleating them into tiny crescents at breakneck speed.
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-07.jpg “Folding”)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-07.jpg "Folding")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-08.jpg “Folding”)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-08.jpg "Folding")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-09.jpg “Folding”)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-09.jpg "Folding")
 
 Six yuan and 30 seconds layer, Adri and I were sitting in front of a steaming array of a dozen of them. We got chastised as Adri poured black <em>Chinkiang</em> vinegar directly over them. <em>Silly foreigners, didn’t you see the bucket of small grab’em-yourself dipping dishes stacked pushed into the traditional dipping-dish-bucket corner?</em>
 
 Have you ever had an experience that made you realize you’ve spent your whole life living a lie? That’s what happened to me as I bit into the first one, feeling the pliant, stretchy, delicate skin pulling away between my teeth as the tiny nub of mildly seasoned pork releasing its juices.
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-04.jpg “Folding”)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-04.jpg "Folding")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-05.jpg “Folding”)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-05.jpg "Folding")
 
-Suddenly, even the best of those five-for-a-dollar dumplings <a href=“http://newyork.seriouseats.com/2011/02/the-best-fried-dumplings-in-chinatown-nyc-new-york-manhattan-potstickers-chinese.html”>I ate so many of in New York</a> were revealed as the slipshod My-First-Dumplings that they are. Even my beloved <a href=“http://www.seriouseats.com/2011/03/qingdao-garden-boiled-fish-with-fiery-sauce-pork-leek-dumplings-cambridge-boston-ma.html'>Qingdao Garden</a> in Cambridge, whose steamed <em>zheng jiao</em> were my gold-standard up to this point seem clumsy in comparison.
+Suddenly, even the best of those five-for-a-dollar dumplings <a href="http://newyork.seriouseats.com/2011/02/the-best-fried-dumplings-in-chinatown-nyc-new-york-manhattan-potstickers-chinese.html">I ate so many of in New York</a> were revealed as the slipshod My-First-Dumplings that they are. Even my beloved <a href="http://www.seriouseats.com/2011/03/qingdao-garden-boiled-fish-with-fiery-sauce-pork-leek-dumplings-cambridge-boston-ma.html">Qingdao Garden</a> in Cambridge, whose steamed <em>zheng jiao</em> were my gold-standard up to this point seem clumsy in comparison.
 
 As we were leaving, we spied the dumpling team folding a <em>different</em> kind of dumpling, these ones made with a leavened dough pleated into a drawn purse-shape, sort of like miniature <em>xiao long boa</em>, this soup-filled dumplings from Shanghai.
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-11.jpg “Folding”)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-11.jpg "Folding")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-10.jpg “Folding”)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-10.jpg "Folding")
 
 I’ve never seen dumplings like this state-side. The juicy pork filling was the same, but the skins were a softer, more absorbent dough. Still plenty stretchy with just enough structural integrity to hold back the juices within, but porous enough to absorb a good amount of vinegar and chili on dipping.
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-12.jpg “Folding”)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-12.jpg "Folding")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-13.jpg “Folding”)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-13.jpg "Folding")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-14.jpg “Folding”)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-14.jpg "Folding")
 
 Any dumpling experts out there know what these are called?
 
 This is Adri’s “I LOVE DUMPLINGS” face:
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-15.jpg “Folding”)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-15.jpg "Folding")
 
 And this is my “I LOOK LIKE AN INMATE EATING DUMPLINGS WITH THIS HAIRCUT” face:
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-15.jpg “Folding”)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-15.jpg "Folding")
 
 Here’s a pretty good rule of thumb for a tastier (and perhaps more dangerous) life: <strong>If you are in Asia and see smoke or steam coming out of a dark alleyway, investigate.</strong> I plan on following through with this rule several times tomorrow as we explore the alleyways of Beijing’s Nanluogu Xiang neighborhood.
