@@ -1,17 +1,17 @@
 # Dependencies
-markdown:         redcarpet
-pygments:         true
+markdown:	redcarpet
+pygments:	true
 
 # Permalinks
-permalink:        pretty
+permalink:	pretty
 
 # Setup
-title:            "J. Kenji López-Alt"
-tagline:          "On the road...”
-url:              http://kenjilopezalt.github.io/
-paginate:         1
-baseurl:          
+title:	"J. Kenji López-Alt"
+tagline:	"On the road...”
+url:	http://kenjilopezalt.github.io/
+paginate:	1
+baseurl:	
 author:
-  name:           J. Kenji López-Alt
-  url:            https://twitter.com/thefoodlab
-  email:          kenji@seriouseats.com
+  name:	J. Kenji López-Alt
+  url:	https://twitter.com/thefoodlab
+  email:	kenji@seriouseats.com
