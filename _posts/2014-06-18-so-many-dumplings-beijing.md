@@ -5,7 +5,7 @@ title: SO MANY DUMPLINGS
 
 Location: Beijing, China
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-beijing-hutong-steamed-bun-dumpling-pig-/20140618-beijing-hutong-steamed-bun-dumpling-pig-06.jpg "")
+![alt-text-here](http://kenjilopezalt.github.io/images/20140618-beijing-hutong-steamed-bun-dumpling-pig-/20140618-beijing-hutong-steamed-bun-dumpling-pig-06.jpg "06")
 
 SO MANY DUMPLINGS.
 
