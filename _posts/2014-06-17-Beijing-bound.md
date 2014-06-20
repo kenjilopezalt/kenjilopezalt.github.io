@@ -3,6 +3,8 @@ layout: post
 title: Beijing Bound
 ---
 
+Location: Beijing, China
+
 It’s 4:07AM here in Beijing. Adri and I arrived a few hours ago and just got back from eating the most delicious 4AM food I’ve ever had in my life. That’s the reward for a 24 hour journey, I suppose.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-04.jpg "Folding")
@@ -79,10 +81,7 @@ This is Adri’s “I LOVE DUMPLINGS” face:
 
 And this is my “I LOOK LIKE AN INMATE EATING DUMPLINGS WITH THIS HAIRCUT” face:
 
-<<<<<<< HEAD:_posts/2014-06-17-Beijing-bound.txt
+
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-16.jpg “Folding”)
-=======
-![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-15.jpg "Folding")
->>>>>>> FETCH_HEAD:_posts/2014-06-17-Beijing-bound.md
 
 Here’s a pretty good rule of thumb for a tastier (and perhaps more dangerous) life: <strong>If you are in Asia and see smoke or steam coming out of a dark alleyway, investigate.</strong> I plan on following through with this rule several times tomorrow as we explore the alleyways of Beijing’s Nanluogu Xiang neighborhood.
