@@ -7,7 +7,7 @@ Location: Beijing, China
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140618-beijing-hutong-steamed-bun-dumpling-pig-/20140618-beijing-hutong-steamed-bun-dumpling-pig-27.jpg "night market")
 
-Late night addendum: we decided to walk over to the Donghuamen night market for some snack in lieu of dinner (we were still stuffed from the dozens of dumplings we'd eaten earlier today). Turns out there are two reasons to go to the Donghuamen night market: to gawk at Australian tourists gawking at squids, endangered species, and novelty-size insects deep fried on sticks, and to be very disappointed by the most forgettable Peking duck I've ever had.
+Late night addendum: we decided to walk over to the Donghuamen night market for some snack in lieu of dinner (we were still stuffed from the <a href=“http://kenjilopezalt.github.io/2014/06/18/so-many-dumplings-beijing/“>dozens of dumplings</a> we'd eaten earlier today). Turns out there are two reasons to go to the Donghuamen night market: to gawk at Australian tourists gawking at squids, endangered species, and novelty-size insects deep fried on sticks, and to be very disappointed by the most forgettable Peking duck I've ever had.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140618-beijing-hutong-steamed-bun-dumpling-pig-/20140618-beijing-hutong-steamed-bun-dumpling-pig-28.jpg "night market 2")
 
