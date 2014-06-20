@@ -9,7 +9,9 @@ title: Do Indoor Voices Exist? (Oh, and a bit of the Great Wall)
 
 <small>*it was not a fully unselfish purchase, as those who know my feet can attest to.</small>
 
-We were in the back of a hired car along with another duo, being driven to the Jinshanling section of the Great Wall, near the small town of Gubeikou. Our driver had been on and off the phone all morning, yelling angrily in short, staccato bursts. Being driven by an angry driver is nerve-wracking enough on its own, but add to that a twisting mountain road with sharp inclines on either side, and the fact that the driver was very casually driving in the oncoming traffic lane, shifting gear and steering, all with one had tied up on the phone, and you can understand my heightened state of fear.
+We were in the back of a hired car along with another duo, being driven to the Jinshanling section of the Great Wall, near the small town of Gubeikou. Our driver had been on and off the phone all morning, yelling angrily in short, staccato bursts.
+
+Being driven by anger is something you should always avoid. Being driven by an angry driver even more so. Add to that a twisting mountain road with sharp inclines on either side, and the fact that the driver was very casually driving in the oncoming traffic lane, shifting gears, and steering, all with one had tied up on the phone, and you can understand my heightened state of fear.
 
 China's a very pushy culture, and I'm not talking pushy in the way that pottery hawkers in Turkish markets or time share-sellers in Cabo are pushy. I'm talking pushy in the way that the computer-controlled drivers in MarioKart are pushy.
 
@@ -17,17 +19,17 @@ If you've been to a Chinatown in a major city, you know that. You can expect to 
 
 It's even worse once they get behind the wheel. All normal rules of lane shifting, signaling, and general good road etiquette go out the window.
 
-In the US, hearing a horn on the road generally mean one of four things, and only three of them are justified.
+In the US, hearing a horn on the road generally means one of four things (and only three of them are justified):
 
-"Hey fruitcake, I'm already in this lane. Next time check your blind spot before you turn!" is one of them.
+<strong>"Hey fruitcake, I'm already in this lane. Next time check your blind spot before you turn!"</strong> is one of them.
 
-"Hey Guy Smiley, the light just changed. Why don't you stop reading your text messages and get a move on? I have a prescription to pick up/kids to drop off/places to see/people to do" is the next most common.
+<strong>"Hey Guy Smiley, the light just changed. Why don't you stop reading your text messages and get a move on? I have a prescription to pick up/kids to drop off/places to see/people to do"</strong> is the next most common.
 
-"I sentence you to kiss my ass!" is a close runner up, but usually reserved for gavel-banging cartoon judges.
+<strong>"I sentence you to kiss my ass!"</strong> is a close runner up, but usually reserved for gavel-banging cartoon judges.
 
-All other uses of the horn signify one and only one thing: "Hey everybody, look at me, I'm an asshole!"
+All other uses of the horn signify one and only one thing: <strong>"Hey everybody, look at me, I'm an asshole!"</strong>
 
-Here, horns seem to have a different meaning entirely. They exist to announce just one thing to all traffic, whether it's oncoming, orthogonal, merging, keeping up with the flow, or standing still: "I am moving along this trajectory and I will not, for any reason, be it life, limb, liberty, or minor paint damage, be swayed from my decision. All consequences from this point forward will be borne upon your shoulders. Come at me, bro."
+Here, horns seem to have a different meaning entirely. They exist to announce just one thing to all traffic, whether it's oncoming, orthogonal, merging, keeping up with the flow, or standing still: <strong>"I am moving along this trajectory and I will not, for any reason, be it life, limb, liberty, or minor paint damage, be swayed from my decision. All consequences from this point forward will be borne upon your shoulders. Come at me, bro."</strong>
 
 It doesn't help that hired cars and taxis in China do not have seat belts in the back.
 
@@ -39,11 +41,11 @@ I have three possible theories to explain it:
 
 * Phones in china are built with very weak microphones.
 * I know that Cantonese makes use of tonality as a part of speech. Perhaps Beijing has it's own dialect which also makes use of volume. I plan on testing this theory by listening to phone conversations throughout the rest of the country.
-* There is some form of natural selection going on here that happens when populations concentrate. China is now at such a high population density that it has entered into a self-reinforcing cycle where only the loudest people in each generation can be heard and progress in society, thereby surviving (in evolutionary terms) to produce ever-louder generations. It’ll be interesting to see how China’s relaxation of the one-child law will affect this progression.
+* There is some form of natural selection going on here that happens when populations concentrate. China is now at such a high population density that it has entered into a self-reinforcing cycle where only the loudest people in each generation can be heard and progress in society, thereby surviving (in evolutionary terms) to produce ever-louder generations. China’s relaxation of the one-child law can only augment this inevitable progression.
 
 The third is my favorite explanation because it creates a Vonnegut-esque future scenario in which even the quietest Chinese whisper is screamed, Yosemite Sam-style at the top of the lungs. It'll be interesting to see whether loudspeakers or aural-impediment devices will become the dominant market force in the future.
 
-All of this is to say that by the time we reached Jinshanling, we were in a heightened mood to appreciate the peace, quite, space, and tranquility of this relatively un-touristy part of the Great Wall. It’s a steep trek up to the start of the walk, and it’s a walk punctuated by steep ups and downs, often over broken stones and un-repaired stairs, but thankfully the cold water saleswomen seem to have set up a one-per-watchtower rule amongst themselves, which means you don’t have to worry about being harassed too much. I’m led to believe this is a major problem at the more touristy Badaling and Mutianyu sections of the Great Wall.
+All of this is to say that by the time we reached Jinshanling, we were in a heightened mood to appreciate the peace, quite, space, and tranquility of this relatively un-touristy part of the Great Wall. It’s a steep trek up to the start of the walk, and it’s a walk punctuated by even steeper ups and downs, often over broken stones and un-repaired stairs, but thankfully the cold water saleswomen seem to have set up a one-per-watchtower rule amongst themselves, which means you don’t have to worry about being harassed too much. I’m led to believe this is a major problem at the more touristy Badaling and Mutianyu sections of the Great Wall.
 
 And dammit, I’m writing this in the hostel bar and they’ve just set up their "make your own dumpling” night (this happens at every hostel on Friday nights, I think), and man am I hungry after a day of trekking, so I’ll just let the pictures do the talking.
 
