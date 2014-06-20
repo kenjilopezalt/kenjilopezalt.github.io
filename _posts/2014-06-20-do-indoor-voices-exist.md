@@ -3,7 +3,7 @@ layout: post
 title: Do Indoor Voices Exist? (Oh, and a bit of the Great Wall)
 ---
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-11.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-11.jpg "Great Wall")
 
 <em>Please let there not be a car around this next bend,</em> I said to myself, my eyes half closed, my jaws clenched tight, and my feet shaking a little in the brand new, synthetic-material, fully breathable, quick-drying ultra-socks that Adri thoughtfully bought for me just before this trip.*
 
@@ -45,54 +45,54 @@ The third is my favorite explanation because it creates a Vonnegut-esque future 
 
 All of this is to say that by the time we reached Jinshanling, we were in a heightened mood to appreciate the peace, quite, space, and tranquility of this relatively un-touristy part of the Great Wall. It’s a steep trek up to the start of the walk, and it’s a walk punctuated by steep ups and downs, often over broken stones and un-repaired stairs, but thankfully the cold water saleswomen seem to have set up a one-per-watchtower rule amongst themselves, which means you don’t have to worry about being harassed too much. I’m led to believe this is a major problem at the more touristy Badaling and Mutianyu sections of the Great Wall.
 
-And dammit, I’m writing this in the hostel bar and they’ve just set up their “make your own dumpling” night (this happens at every hostel on Friday nights, I think), and man am I hungry after a day of trekking, so I’ll just let the pictures do the talking.
+And dammit, I’m writing this in the hostel bar and they’ve just set up their "make your own dumpling” night (this happens at every hostel on Friday nights, I think), and man am I hungry after a day of trekking, so I’ll just let the pictures do the talking.
 
 Needless to say, the Great Wall is one of the greatest sites you can visit. And that’s coming from a very excitable but extremely cynical seasoned traveler. No exaggeration.
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-01.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-01.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-02.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-02.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-03.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-03.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-04.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-04.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-05.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-05.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-06.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-06.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-07.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-07.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-08.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-08.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-09.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-09.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-10.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-10.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-12.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-12.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-13.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-13.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-14.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-14.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-15.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-15.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-16.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-16.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-17.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-17.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-18.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-18.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-19.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-19.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-20.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-20.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-21.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-21.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-22.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-22.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-23.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-23.jpg "Great Wall")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-24.jpg “Great Wall“)
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-24.jpg "Great Wall")
 
 See what I mean?
