@@ -3,9 +3,11 @@ layout: post
 title: Do Indoor Voices Exist?
 ---
 
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-11.jpg “Great Wall“)
+
 <em>Please let there not be a car around this next bend,</em> I said to myself, my eyes half closed, my jaws clenched tight, and my feet shaking a little in the brand new, synthetic-material, fully breathable, quick-drying ultra-socks that Adri thoughtfully bought for me just before this trip.*
 
-<small>*it was not a fully unselfish purchase, as those who know my feet can attest to.</em>
+<small>*it was not a fully unselfish purchase, as those who know my feet can attest to.</small>
 
 We were in the back of a hired car along with another duo, being driven to the Jinshanling section of the Great Wall, near the small town of Gubeikou. Our driver had been on and off the phone all morning, yelling angrily in short, staccato bursts. Being driven by an angry driver is nerve-wracking enough on its own, but add to that a twisting mountain road with sharp inclines on either side, and the fact that the driver was very casually driving in the oncoming traffic lane, shifting gear and steering, all with one had tied up on the phone, and you can understand my heightened state of fear.
 
@@ -35,7 +37,7 @@ And did I mention the loud phone calls? I did? I feel like they’re worth talki
 
 I have three possible theories to explain it:
 
-* phones in china are built with very weak microphones.
+* Phones in china are built with very weak microphones.
 * I know that Cantonese makes use of tonality as a part of speech. Perhaps Beijing has it's own dialect which also makes use of volume. I plan on testing this theory by listening to phone conversations throughout the rest of the country.
 * There is some form of natural selection going on here that happens when populations concentrate. China is now at such a high population density that it has entered into a self-reinforcing cycle where only the loudest people in each generation can be heard and progress in society, thereby surviving (in evolutionary terms) to produce ever-louder generations. It’ll be interesting to see how China’s relaxation of the one-child law will affect this progression.
 
@@ -46,3 +48,51 @@ All of this is to say that by the time we reached Jinshanling, we were in a heig
 And dammit, I’m writing this in the hostel bar and they’ve just set up their “make your own dumpling” night (this happens at every hostel on Friday nights, I think), and man am I hungry after a day of trekking, so I’ll just let the pictures do the talking.
 
 Needless to say, the Great Wall is one of the greatest sites you can visit. And that’s coming from a very excitable but extremely cynical seasoned traveler. No exaggeration.
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-01.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-02.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-03.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-04.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-05.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-06.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-07.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-08.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-09.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-10.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-12.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-13.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-14.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-15.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-16.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-17.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-18.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-19.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-20.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-21.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-22.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-23.jpg “Great Wall“)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-24.jpg “Great Wall“)
+
+See what I mean?
