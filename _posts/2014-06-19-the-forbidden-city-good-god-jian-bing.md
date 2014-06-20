@@ -5,7 +5,7 @@ title: The Forbidden City and Good God are Jian Bing Good
 
 Location: Beijing, China
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140619-beijing-bing-forbidden-city-/20140619-beijing-bing-forbidden-city-14 "forbidden city")
+![alt-text-here](http://kenjilopezalt.github.io/images/20140619-beijing-bing-forbidden-city-/20140619-beijing-bing-forbidden-city-14.jpg "forbidden city")
 
 Today Adri and I hit the Forbidden city, which is totally awe-inspiring in a way you can’t really fathom until you are there. It’s much, much bigger than I thought it would be, and surprisingly less busy. I mean, it was busy, but the way Adri made it sound (she was here back in 2007), it was going to be like riding a 12-city-block-sized rush hour subway car. Once you get out of the main flow of traffic, there are some surprisingly beautiful and secluded spots within those massive walls.
 
