@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hot and Sour Soup in Beijing is Just as Gloopy 
+title: Day 2: Hot and Sour Soup in Beijing is Just as Gloopy 
 ---
 
 Location: Beijing, China

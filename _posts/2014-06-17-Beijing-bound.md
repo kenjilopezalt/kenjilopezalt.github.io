@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Beijing Bound
+title: Day 1: Beijing Bound
 ---
 
 Location: Beijing, China
