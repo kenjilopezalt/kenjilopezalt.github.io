@@ -31,7 +31,7 @@ Looks like noodles, smells like s$&t, quite literally. Those are strips of thinl
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140621-beijing-yogurt-bing-rou-food-market-tiananmen-sqare-liangpi-hot-pot/20140621-food-market-06.jpg "fried buns!")
 
-<em>Shen xian bao</em>&mdash;pork filled leavened buns that are crisped up on a griddle with black sesame seeds and scallions. They're served with vinegar for dipping.
+<em>Shengjian bao</em>&mdash;pork filled leavened buns that are crisped up on a griddle with black sesame seeds and scallions. They're served with vinegar for dipping.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140621-beijing-yogurt-bing-rou-food-market-tiananmen-sqare-liangpi-hot-pot/20140621-food-market-07.jpg "Fried quail eggs!")
 
