@@ -23,9 +23,9 @@ To help the situation, I've been sticking to a rigorous self-prescribed formula 
 
 We bought our yogurt and started walking back to the hostel, when my food radar registered a solid <em>bleep</em>.
 
-<em>What is the disk-shaped object man is holding in his hands?</em> my eyes said to my brain. <em>I'm not sure, let's ask the nose</em>, he responded.
+<em>What is the disk-shaped object that man is holding in his hands?</em> my eyes said to my brain. <em>I'm not sure, let's ask the nose</em>, he responded.
 
-</em>Smells faintly of cilantro, with perhaps a hint of braised pork and soy sauce</em>, said my nose to both of them.
+<em>Smells faintly of cilantro, with perhaps a hint of braised pork and soy sauce</em>, said my nose to both of them.
 
 At that point, as often happens, my feet took charge of the rest of my body and turned us in the direction that the man had just come from. It was all I could do to tell my mouth to call after Adri and tell her I was being involuntarily led away.
 
@@ -37,7 +37,7 @@ See, this was a <em>rou jia bing</em> shop. Bing is the chinese word for all sor
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140621-beijing-yogurt-bing-rou-food-market-tiananmen-sqare-liangpi-hot-pot/20140621-beijing-bing-rou-02.jpg "Making balls")
 
-We watched as our man ripped off individual balls of dough after kneading the large mass on an oiled surface for several minutes. Eventually, each ball of dough got stretched and twisted around like a coiled snake before being placed into a cooker that simultaneously steamed it while girdling the top and bottom.
+We watched as our man ripped off individual balls of dough after kneading the large mass on an oiled surface for several minutes. Eventually, each ball of dough got stretched and twisted around like a coiled snake before being placed into a cooker that simultaneously steamed it while griddling the top and bottom.
 
 The result is a flat disk that in many way resembles a Venezuelan-style arepa, but with a much lighter, fluffier inner texture.
 
@@ -47,7 +47,7 @@ While the dough-man made the bing, the woman up front fished out large chunks of
 
 The pork was braised in a sweet and savory broth that to me tasted of soy, Chinese wine, and sugar, along with a couple of warm spices&mdash;star anise, cinnamon, and Sichuan peppercorn, perhaps a couple of others.
 
-She placed the chunks on a large chopping block, tossed a handful of cilantro and cooked hot green horn chilies on top, then chopped it all together with a cleaver.
+She placed the chunks on a large chopping block, tossed a handful of cilantro and cooked hot green horn peppers on top, then chopped it all together with a cleaver.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140621-beijing-yogurt-bing-rou-food-market-tiananmen-sqare-liangpi-hot-pot/20140621-beijing-bing-rou-04.jpg "Filling")
 
@@ -77,29 +77,6 @@ Let me leave you with a picture of how hot and humid it is here:
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140621-beijing-yogurt-bing-rou-food-market-tiananmen-sqare-liangpi-hot-pot/20140621-beijing-tiananmen-sqare-01.jpg "Yogurt")
 
-A picture of Adri with Glorious Leader:
+And a picture of Adri with Glorious Leader:
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140621-beijing-yogurt-bing-rou-food-market-tiananmen-sqare-liangpi-hot-pot/20140621-beijing-tiananmen-sqare-05.jpg "Yogurt")
-
-And a few photos from the day-time version of that <a href="http://kenjilopezalt.github.io/2014/06/18/hot-and-sour-soup-in-China-is-just-as-gloopy/">night market</a> we visited the other day. The street is plenty crowded, packed with vendors, and worth taking a stroll down if you like to gawk, but as before, most of the food seemed like tarted-up, half-assed versions of things you can get elsewhere and away from the crowds.
-
-![alt-text-here](http://kenjilopezalt.github.io/images/20140621-beijing-yogurt-bing-rou-food-market-tiananmen-sqare-liangpi-hot-pot/20140621-food-market-01.jpg "Scorpions on a stick")
-<small>Scorpions on a stick.</small>
-
-![alt-text-here](http://kenjilopezalt.github.io/images/20140621-beijing-yogurt-bing-rou-food-market-tiananmen-sqare-liangpi-hot-pot/20140621-food-market-02.jpg "Rice stick in hot sauce")
-<small>Rice stick in hot sauce.</small>
-
-![alt-text-here](http://kenjilopezalt.github.io/images/20140621-beijing-yogurt-bing-rou-food-market-tiananmen-sqare-liangpi-hot-pot/20140621-food-market-03.jpg "Pancakes")
-<small>Pancakes.</small>
-
-![alt-text-here](http://kenjilopezalt.github.io/images/20140621-beijing-yogurt-bing-rou-food-market-tiananmen-sqare-liangpi-hot-pot/20140621-food-market-04.jpg "Bao")
-<small>Bao (steamed buns).</small>
-
-![alt-text-here](http://kenjilopezalt.github.io/images/20140621-beijing-yogurt-bing-rou-food-market-tiananmen-sqare-liangpi-hot-pot/20140621-food-market-05.jpg "Tripe")
-<small>Sliced tripe.</small>
-
-![alt-text-here](http://kenjilopezalt.github.io/images/20140621-beijing-yogurt-bing-rou-food-market-tiananmen-sqare-liangpi-hot-pot/20140621-food-market-06.jpg "Shen xian boa")
-<small>Fried steamed buns.</small>
-
-![alt-text-here](http://kenjilopezalt.github.io/images/20140621-beijing-yogurt-bing-rou-food-market-tiananmen-sqare-liangpi-hot-pot/20140621-food-market-07.jpg "Fried quail eggs")
-<small>Fried quail eggs.</small>
