@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 3: The Forbidden City and Good God are Jian Bing Good
+title: Day 3, The Forbidden City and Good God are Jian Bing Good
 ---
 
 Location: Beijing, China

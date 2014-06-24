@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 4: Do Indoor Voices Exist? (Oh, and a bit of the Great Wall)
+title: Day 4, Do Indoor Voices Exist? (Oh, and a bit of the Great Wall)
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140620-beijing-great-wall-jinshanling-/20140620-beijing-great-wall-jinshanling-11.jpg "Great Wall")
