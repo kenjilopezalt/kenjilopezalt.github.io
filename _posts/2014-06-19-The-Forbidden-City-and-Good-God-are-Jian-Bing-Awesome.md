@@ -27,6 +27,8 @@ The most awesome parts of the Museum are behind paywalls (as is usually the case
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140619-beijing-bing-forbidden-city-/20140619-beijing-bing-forbidden-city-27.jpg "forbidden city")
 
+Notice how everything is sort of a hazy beige color? I'm not sure if we were just unlucky with hazy weather or if it's the infamous Beijing smog, but it was like that every day we were here. It makes for some nice atmospheric long-distance photos, but I'm not sure what it did to our lungs.
+
 The Treasure Gallery along the Eastern wall is also worth the extra admission, especially for the small garden housed within it, packed with roughly pitted stones carted up from Southern China, and far, far less crowded than the Imperial Garden that leads you out through the north wall (through the awesomely-named Gate of Divine Prowess).
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140619-beijing-bing-forbidden-city-/20140619-beijing-bing-forbidden-city-31.jpg "forbidden city")
