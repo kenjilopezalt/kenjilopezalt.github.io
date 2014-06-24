@@ -23,7 +23,7 @@ Japanese Taco-yaki&mdash;octopus-filled spherical cakes.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140621-beijing-yogurt-bing-rou-food-market-tiananmen-sqare-liangpi-hot-pot/20140621-food-market-04.jpg "dumplings and crayfish!")
 
-Steamed pork-filled <em>boa</em>, along with bowls of tofu with chili oil and vinegar.
+Steamed pork-filled <em>bao</em>, along with bowls of tofu with chili oil and vinegar.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140621-beijing-yogurt-bing-rou-food-market-tiananmen-sqare-liangpi-hot-pot/20140621-food-market-05.jpg "Tripe!")
 
