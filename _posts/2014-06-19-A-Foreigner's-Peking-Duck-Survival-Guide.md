@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 3, A Foreigner’s Survival Guide to Ordering and Eating Peking Duck in Beijing 
+title: Day 3&#58; A Foreigner’s Survival Guide to Ordering and Eating Peking Duck in Beijing 
 ---
 
 Location: Beijing, China

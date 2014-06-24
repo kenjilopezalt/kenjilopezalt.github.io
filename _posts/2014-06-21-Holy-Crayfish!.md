@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 5, Holy Crayfsh! 
+title: Day 5&#58; Holy Crayfsh! 
 ---
 
 Location: Beijing, China
