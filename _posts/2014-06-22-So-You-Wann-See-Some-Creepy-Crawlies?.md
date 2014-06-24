@@ -5,7 +5,7 @@ title: Day 6: So you wanna see some creepy-crawlies?
 
 Location: Beijing, China
 
-The Wongfujing food market is the daytime equivalent of the nighttime Dong Hua food market which <a href="http://kenjilopezalt.github.io/2014/06/18/hot-and-sour-soup-in-China-is-just-as-gloopy/">I mentioned the other day</a>, and it's packed with just as many tourists, though during the day, most of the tourists seem to be Chinese, not Australian.
+The Wangfujing food market is the daytime equivalent of the nighttime Dong Hua food market which <a href="http://kenjilopezalt.github.io/2014/06/18/hot-and-sour-soup-in-China-is-just-as-gloopy/">I mentioned the other day</a>, and it's packed with just as many tourists, though during the day, most of the tourists seem to be Chinese, not Australian.
 
 It's a good street to stroll down if you want to view a bunch of creepy-crawlies stuck on sticks (like live scorpions, with their barbs still flailing and pincers still pinching), though again, not the best place to go if you actually want the best food to eat. Almost all of it is a half-assed version of things you can find better elsewhere in the city, and at more reasonable prices.
 
