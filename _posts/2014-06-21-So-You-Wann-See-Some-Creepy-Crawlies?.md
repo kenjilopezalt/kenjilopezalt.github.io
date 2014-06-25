@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 6&#58; So you wanna see some creepy-crawlies? 
+title: Day 5&#58; So you wanna see some creepy-crawlies? 
 ---
 
 Location: Beijing, China
