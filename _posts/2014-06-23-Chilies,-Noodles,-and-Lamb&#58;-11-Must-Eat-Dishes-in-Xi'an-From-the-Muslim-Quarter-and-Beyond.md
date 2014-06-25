@@ -191,7 +191,7 @@ The spiced potatoes are served in paper bowls with a bamboo skewer for eating on
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140623-xian-food/20140623-xian-food-muslim-quarter-32.jpg "Dumplings")
 
-So they aren't the most delicate-skinned, expertly-made dumplings in all of China, but the dumplings in the muslim quarter are unique in that they forgo the standard pork filling for beef or&mdash;better yet&mbath;chopped mutton. Heavily spiced and not-too juicy, the purse-shaped steamed dumplings are served with a dish of black vinegar slicked with roasted chili oil.
+So they aren't the most delicate-skinned, expertly-made dumplings in all of China, but the dumplings in the muslim quarter are unique in that they forgo the standard pork filling for beef or&mdash;better yet&mdash;chopped mutton. Heavily spiced and not-too juicy, the purse-shaped steamed dumplings are served with a dish of black vinegar slicked with roasted chili oil.
 
 P.S. the word for lamb is <em>yang rou</em> (beef is <em>niu rou</em>). Learn it well, as it'll serve you at times like this.
 
