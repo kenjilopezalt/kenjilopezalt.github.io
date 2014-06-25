@@ -7,13 +7,29 @@ Location: Xi'an, China
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140623-xian-food/20140623-xian-food-muslim-quarter-01.jpg "Muslim Quarter")
 
+Located at the terminus of the Silk Road and once the cultural and political capitol of China, the city of Xi'an in Shaanxi province has one of the more interesting culinary histories in China, in no small part due to the influence of its large Muslim population.
+
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140623-xian-food/20140623-xian-food-muslim-quarter-02.jpg "Hot wok")
+
+The old Drum Tower acts as the de facto entryway to the Muslim Quarter, located in the Northwest quadrant of the ancient walled city. At first glance, you get a sort of Epcot-Center, Disney-esque impression, what with the loud hawking and bright signs everywhere, but its a location steeped in history: It's housed a largely muslim population since the 7th Century AD. Many of the dishes served have changed little since that time.
+
+At least, that's what I hear.
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140623-xian-food/20140623-xian-food-muslim-quarter-05.jpg "Prunes and walnuts")
+
+You'll find sites familiar to both Chinese and Middle Eastern culture. Chefs stir-fry lamb and spices in hot woks set over blazing hot coal ovens nestled into stalls in between vendors roasting walnuts or selling prunes of varying prices and degrees of quality.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140623-xian-food/20140623-xian-food-muslim-quarter-03.jpg "Steamers")
 
+Stacks of bamboo baskets filled with mutton and beef dumplings steam away next to fresh fruit vendors and old ladies stir-frying potatoes.
+
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140623-xian-food/20140623-xian-food-muslim-quarter-04.jpg "Watermelon")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140623-xian-food/20140623-xian-food-muslim-quarter-05.jpg "Prunes and walnuts")
+And of course, there are tourists. Tons and tons and tons of them, though mostly Chinese.
+
+I stopped by the Muslim Quarter three times over the course of a few days to get a gauge of the best times to go and the best things to eat. If you want to see crowds and hawkers and get jostled before your meal, head there in the late evening, after 7:30 or so. Go there in the afternoon or earlier in the evening and you'll get treated better with a little more space to walk and food that's prepared with a bit more time and attention.
+
+No matter how hungry you enter, you can expect to leave fully stuffed without spending more than around 40 Yuan (about $6.50) per person. Not a bad price for a night out.
 
 ## #1: Hand-stretched Noodles
 

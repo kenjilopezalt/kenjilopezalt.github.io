@@ -29,7 +29,7 @@ I stayed up reading about Xi'anese cuisine in the cool, dry, cabin-air until the
 
 That was then and this is now.
 
-You'll have to excuse any typos in this ramble&mdash;it's a little difficult to type effectively when your laptop is balanced on a single knee. even when that laptop is a brand new, ultra-light, super-slim, ideal-for-a-traveler-on-the-road, 11-inch MacBook Air (I mention it because this may be the happiest I've ever been with a device, and I'm a device <em>junkie</em>). Why don't I put my knees together and place my computer in my lap like a normal traveling-writer, you may ask? Well, if I were to do that, I'd end up putting my shoes in the puddle of human urine on the floor in front of me, duh.
+You'll have to excuse any typos in this ramble&mdash;it's a little difficult to type effectively when your laptop is balanced on a single knee, even when that laptop is a brand new, ultra-light, super-slim, ideal-for-a-traveler-on-the-road, 11-inch MacBook Air (I mention it because this may be the happiest I've ever been with a device, and I'm a device <em>junkie</em>). Why don't I put my knees together and place my computer in my lap like a normal traveling-writer, you may ask? Well, if I were to do that, I'd end up putting my shoes in the puddle of human urine on the floor in front of me, duh.
 
 Granted, it's <em>baby</em> urine, and it was recently emitted by a particularly <em>cute</em> baby  (with no warning, I might add. Smiling, gurgling, reaching for crackers one second, giving the floor his own special rinse the next), but still, it's urine, ferchrissakes.
 
