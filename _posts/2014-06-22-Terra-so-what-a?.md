@@ -55,19 +55,25 @@ All of that is intellectual impressive to me, but looking at them? No electric s
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140623-terracotta-warrior-/20140623-terracotta-warrior-1 "Terracotta wide")
 
-Man, I sound like an obnoxious, ungrateful, first-world-problem-riddled git, don't I?
+The building it's housed in is actually pretty cool. It's big enough that the far end is partially obscured by haze. I've always been fascinated by airplane hangars, and large truss system analysis was my favorite part of the structures classes I had to take for my now-useless architecture degree.
+
+Man, I sound like an obnoxious, ungrateful, first-world-problem-riddled git, don't I? For all you history buffs out there who would give an arm and a leg to visit this site, I truly hope you make it here one day and appreciate it extra hard to make up for my nonchalance.
 
 Adri wanted to take my photograph in front of the largest pit and I did my very best to look excited. This is how it turned out:
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140623-terracotta-warrior-/20140623-terracotta-warrior-8 "Terracotta bored kenji")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140623-terracotta-warrior-/20140623-terracotta-warrior-7 "Terracotta bored soldier")
-
 I'm really terrible at faking emotions.
 
+After looking at this picture, it occurred to me that there were several thousand other people in this room who were at least as bored as I was:
 
+![alt-text-here](http://kenjilopezalt.github.io/images/20140623-terracotta-warrior-/20140623-terracotta-warrior-7 "Terracotta bored soldier")
+
+I guess I'd've been bored too if Qing, the first Emperor of China had just declared "Ok troops, now, stand still please&mdash;we're going to capture your exact likenesses and despite our fabulous recent technological advances in the realms of writing, the printing press, and archery, we haven't quite yet gotten around to photographs or 3D scanners yet so we're gonna have to do this the old fashioned way, and... Hey! Ming! Quit it with the rabbit ears, will you? We'll do a fun one afterwards, I promise, ok?"
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140623-terracotta-warrior-/20140623-terracotta-warrior-6 "Terracotta adri")
+
+So why did we come here? Well, it's for the same reason that made me want to facepalm when I heard that girl asking where you can get egg rolls in Xi'an: I'd have to be a complete jerk to travel half way around the world to the site of what's recognized as one of the world's greatest archaeological finds and not spend the half a day it takes to take it in.
 
 That and Adri certainly enjoys this kind of <em>in situ</em> historical-type stuff*
 
@@ -77,4 +83,4 @@ Turns out the noodle shop by the bus station actually <em>wasn't</em> particular
 
 Anyhow, I don't mean this to sound like I'm having anything other than a blast and a half. This is a once-in-a-lifetime experience that we've been saving and planning for for half a decade, and while the historical sites might not be on the top of my list, the culinary and cultural experience has been nothing short of spectacular so far, nowhere more so than in Xi'an.
 
-(Stay tuned, the next post will be all about what we've been eating in between 
+(Stay tuned, the next post is about the things that actually <em>do</em> get me all spine-tingly excited).
