@@ -71,7 +71,7 @@ After looking at this picture, it occurred to me that there were several thousan
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140623-terracotta-warrior-/20140623-terracotta-warrior-7.jpg "Terracotta bored soldier")
 
-I guess I'd've been bored too if Qing, the first Emperor of China had just declared "Ok troops, now, stand still please&mdash;we're going to capture your exact likenesses and despite our fabulous recent technological advances in the realms of writing, the printing press, and archery, we haven't quite yet gotten around to photographs or 3D scanners yet so we're gonna have to do this the old fashioned way, and... Hey! Ming! Quit it with the rabbit ears, will you? We'll do a fun one afterwards, I promise, ok?"
+I guess I'd've been bored too if Qin, the first Emperor of China had just declared "Ok troops, now, stand still please&mdash;we're going to capture your exact likenesses and despite our fabulous recent technological advances in the realms of writing, the printing press, and archery, we haven't quite yet gotten around to photographs or 3D scanners yet so we're gonna have to do this the old fashioned way, and... Hey! Ming! Quit it with the rabbit ears, will you? We'll do a fun one afterwards, I promise, ok?"
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140623-terracotta-warrior-/20140623-terracotta-warrior-6.jpg "Terracotta adri")
 
