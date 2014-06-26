@@ -57,13 +57,15 @@ All of that is intellectual impressive to me, but looking at them? No electric s
 
 Man, I sound like an obnoxious, ungrateful, first-world-problem-riddled git, don't I?
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140623-terracotta-warrior-/20140623-terracotta-warrior-8 "Terracotta bored kenji")
+Adri wanted to take my photograph in front of the largest pit and I did my very best to look excited. This is how it turned out:
 
-Adri wanted to take my photograph in front of the largest pit and I did my very best to look excited. This is how it turned out.
+![alt-text-here](http://kenjilopezalt.github.io/images/20140623-terracotta-warrior-/20140623-terracotta-warrior-8 "Terracotta bored kenji")
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140623-terracotta-warrior-/20140623-terracotta-warrior-7 "Terracotta bored soldier")
 
 I'm really terrible at faking emotions.
+
+
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140623-terracotta-warrior-/20140623-terracotta-warrior-6 "Terracotta adri")
 

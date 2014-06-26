@@ -7,7 +7,7 @@ Location: Beijing, China
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140619-beijing-peking-duck-sinja-minfu-/20140619-beijing-peking-duck-sinja-minfu-02.jpg "Peking Duck Primary")
 
-Actually, the title of this post is sort of misleading, as it's actually not that difficult to figure out how to eat Peking duck as a foreigner. The menus at the restaurants all have pictures (and barring that, you can always pantomime a duck, which serves the dual purpose of placing an order and entertaining the waitstaff), and the waitstaff will baby you through every step of the process.
+The title of this post is sort of misleading, as it's actually not that difficult to figure out how to eat Peking duck as a foreigner. The menus at the restaurants all have pictures (and barring that, you can always pantomime a duck, which serves the dual purpose of placing an order and entertaining the waitstaff), and the waitstaff will baby you through every step of the process.
 
 The only real decisions you need to make are a) which restaurant to go to, b) what side dishes to get, c) what quality of duck you want, and d) if you'd like it with garlic or without.
 
@@ -21,7 +21,7 @@ Peking Duck has a rich history in palace cuisine, but it wasn't introduced to th
 
 That oven is not the only elaborate part of the process, which starts with a 100-day old Pekinese duck that has been force-fed for the last several days of its life to plumpen up&mdash;at least, that's how the most highly regarded do it. Air is then forced into the neck cavity of the slaughtered, plucked duck, inflating its skin sort of like those lizard balloons the the first Shrek movie. The idea is to completely separate the skin from the meat underneath, which allows for the skin to render out fat from both sides, basting the meat as it cooks.
 
-But we're not anywhere near cooking phase yet. Next, the guts of the duck are removed. With American butchery practices, the guts will be removed through the business-end of the digestive system. Ever notice how your chicken or duck has a huge cavity cut out at the bottom between the legs? With a Peking duck, presentation is of paramount importance, so the gust are instead removed, surgeon-like, through a tiny incision under one of the wings.
+But we're not anywhere near cooking phase yet. Next, the guts of the duck are removed. With American butchery practices, the guts are removed through the business-end of the digestive system. Ever notice how your chicken or duck has a huge cavity cut out at the bottom between the legs? With a Peking duck, presentation is of paramount importance, so the guts are instead removed, surgeon-like, through a tiny incision under one of the wings.
 
 Next up, a couple branches of wheat or sorghum are inserted into the chest cavity to keep the skin stretched taught and away from the meat as it roasts. The prepared duck is then doused with boiling water (this helps tighten the skin up, as well as causing it to paradoxically dry <em>faster</em>), given a coating of maltose syrup&mdash;this is what gives it its rich, lacquered color&mdash;and left to hang and dry for at least 24 hours.
 
@@ -93,7 +93,7 @@ The next phase is even more insanely skilled. After removing the fat off the bac
 
 The whole thing is topped off with the sliced skin from the back and placed on the table*. Finally, the chef places the plate of collected scraps&mdash;bit of meat, the wings and drumsticks, the split head, neck, and the coveted "pope's nose"&mdash;on your table and a waitress comes over with a basket full of paper-thin <em>bo bing</em>&mdash;wheat-based pancakes.
 
-<small>*Looking at this gorgeous platter in front of me&mdash;actually, just looking at a <em>picture</em> of that gorgeous platter&mdash;and comparing it to what passes for Peking duck at New York's Peking Duck House, with its thick, clumsy slices and squishy, fat-saturated skin makes me want to gently pat all of its patrons on the back of the hand with a gently, "there, there."</small>
+<small>*Looking at this gorgeous platter in front of me&mdash;actually, just looking at a <em>picture</em> of that gorgeous platter&mdash;and comparing it to what passes for Peking duck at New York's Peking Duck House, with its thick, clumsy slices, squishy, fat-saturated skin, and pancakes thick-as-tortillas makes me want to tenderly pat all of its patrons on the back of the hand with a gentle "there, there."</small>
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140619-beijing-peking-duck-sinja-minfu-/20140619-beijing-peking-duck-sinja-minfu-11.jpg "bo bing")
 
@@ -101,7 +101,7 @@ Next up in your in-flight entertainment: your waitress will demonstrate how to w
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140619-beijing-peking-duck-sinja-minfu-/20140619-beijing-peking-duck-sinja-minfu-12.jpg "dip meat not pancakes")
 
-Next, she takes a bit of duck and dips it into fermented bean sauce&mdash;far saltier and more savory than the hoisin sauce you get in New York. Incidentally, after years of being annoyed at how difficult it is to spread a thin, even layer of sauce onto my pancake using chopsticks, I had a face palm <em>"duh"</em> moment when she did this. It just makes so much more sense to dip the duck rather than spread the sauce.
+Next, she takes a bit of duck and dips it into fermented bean sauce&mdash;far saltier and more savory than the hoisin sauce you get in New York. Incidentally, after years of being annoyed at how difficult it is to spread a thin, even layer of sauce onto my pancake using chopsticks, I had a face-palm <em>"duh"</em> moment when she did this. It just makes so much more sense to dip the duck rather than spread the sauce.
 
 She places two to three small slices of duck along one edge of the pancake.
 
@@ -117,7 +117,9 @@ Thinly sliced scallion whites go on next...
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140619-beijing-peking-duck-sinja-minfu-/20140619-beijing-peking-duck-sinja-minfu-16.jpg "cucumber")
 
-...followed by some cucumber batons. Your duck is now ready to wrap.
+...followed by some cucumber batons.
+
+Your duck is now ready to wrap.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140619-beijing-peking-duck-sinja-minfu-/20140619-beijing-peking-duck-sinja-minfu-17.jpg "first fold")
 
