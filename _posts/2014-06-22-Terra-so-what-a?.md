@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 6&#58; Terra-so-what-a?
+title: Xi'an&#58;Terra-so-what-a?
 ---
 
 Location: Xi'an, China

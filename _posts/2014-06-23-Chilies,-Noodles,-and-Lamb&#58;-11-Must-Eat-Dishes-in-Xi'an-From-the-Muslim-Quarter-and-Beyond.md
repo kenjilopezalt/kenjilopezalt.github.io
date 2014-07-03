@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 7&#58; Chilies, Noodles, and Lamb&#58; 11 Must-Eat Dishes in Xi'an Form the Muslim Quarter and Beyond
+title: Xi'an&#58;Chilies, Noodles, and Lamb&#58; 11 Must-Eat Dishes in Xi'an Form the Muslim Quarter and Beyond
 ---
 
 Location: Xi'an, China

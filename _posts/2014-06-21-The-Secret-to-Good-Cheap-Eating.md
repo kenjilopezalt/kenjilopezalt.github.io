@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 5&#58; The Best Way to Order Food in China 
+title: Beijing&#58; The Best Way to Order Food in China 
 ---
 
 Location: Beijing, China

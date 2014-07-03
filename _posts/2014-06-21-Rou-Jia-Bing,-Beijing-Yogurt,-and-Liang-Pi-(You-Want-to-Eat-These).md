@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 5&#58; Rou Jia Bing, Beijing Yogurt, and Liangpi&#58; You Want to Eat These 
+title: Beijing&#58; Rou Jia Bing, Beijing Yogurt, and Liangpi&#58; You Want to Eat These 
 ---
 
 Location: Beijing, China

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Day 2&#58; SO MANY DUMPLINGS
+title: Beijing&#58; SO MANY DUMPLINGS
 ---
 
 Location: Beijing, China
