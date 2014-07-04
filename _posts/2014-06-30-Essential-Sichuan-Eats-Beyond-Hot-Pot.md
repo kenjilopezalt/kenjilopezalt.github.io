@@ -25,17 +25,15 @@ I'm going to be totally unabashedly biased here and list them in order of my fav
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-chengdu-mapo-2.jpg "Chen Mapo Doufu")
 
-This is it. My favorite dish in the world and the grandmother of Sichuan cuisine. Translated literally as "pock-marked grandmother's tofu," its totally apocryphal origin story is identical to a half dozen other food origin stories: it starts with hungry crowds and a cook with few ingredients but plenty of creativity.
+This is it. My favorite dish in the world and the grandmother of Sichuan cuisine. Translated literally as "pock-marked grandmother's tofu," its totally apocryphal origin story is identical to a half dozen other food origin stories: it starts with hungry crowds and a cook with few ingredients but plenty of creativity. The result is an inexpensive stew that uses simple ingredients&mdash;soft tofu, ground meat (beef or pork), fermented chili bean paste, a handful of sichuan peppercorns, and plenty of red-hot chili oil&mdash;to create simple, soul-satisfying fare.
 
-TK STORY
+I very rarely get visibly excited about anything&mdash;I'm not sure if that makes me a stoic, or an emotionless shell of a human being&mdash;but as we sat down at <a href="http://www.chenmapo.com/ee/index.html">Chen Mapo Doufu</a, the upscale Chengdu institution that was supposedly built on the fame and recipe of Grandma Chen herself, I got a little giddy.
 
-I very rarely get visibly excited about anything&mdash;I'm not sure if that makes me a stoic, or an emotionless shell of a human being&mdash;but as we sat down at Chen Mapo Doufu, the upscale restaurant that was supposedly built on the fame and recipe of Grandma Chen herself, I got a little giddy.
-
-![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-chengdu-mapo-1.jpg.jpg "excited Kenji")
+![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-chengdu-mapo-1.jpg "excited Kenji")
 
 You can find Mapo Doufu on the menu at almost any restaurant in China, especially in Sichuan, but this version, served in a screaming-hot cast iron bowl was easily the best. Tender cubes of silken tofu laced with tender ground beef under a bubbling layer of chili oil, fragrant with toasted Sichuan peppercorn and fermented horse beans. It doesn't have the blast of chili-heat you might expect from looking at it. Rather, it has a more subtle, layered heat with chilies that come through alternately as sweet and hot with the rich, almost raisin-like flavor of dried fruit.
 
-I'm happy to say that the best version I've had in the states, made by a Sichuan chef at <a href="TK">Fuloon, in Malden, MA</a> is a near perfect taste-alike to the one at Chen. I'm even happier to report that the chef was <a href="TK">kind enough to share his techniques and recipe with me</a> a few years back. I even spent the time developing those techniques into a <a href="TK">full-fledged vegetarian version</a> that I like even <em>better</em> than the meaty one. Let's spread the Mapo love around, ok?
+I'm happy to say that the best version I've had in the states, made by a Sichuan chef at <a href="http://www.fuloonrestaurant.com/">Fuloon, in Malden, MA</a> is a near perfect taste-alike to the one at Chen. I'm even happier to report that the chef was <a href="http://www.seriouseats.com/2011/07/how-the-best-mapo-dofu-is-made-fuloon-restaurant-malden-ma.html">kind enough to share his techniques and recipe with me</a> a few years back. I even spent the time developing those techniques into a <a href="http://www.seriouseats.com/2013/02/vegan-food-mapo-tofu-vegetarian-sichuan.html">full-fledged vegetarian version</a> that I like even <em>better</em> than the meaty one. Let's spread the Mapo love around, ok?
 
 ##2. Fuqi Feipian (Sliced Beef Tripe in Chili Oil With Peanuts)
 
@@ -43,45 +41,75 @@ I'm happy to say that the best version I've had in the states, made by a Sichuan
 
 Whenever a Sichuan menu is placed in front of me, my eyes instinctively gravitate towards the cold appetizers, many of which come doused in a vinaigrette-like sauce made with roasted chili oil, Sichuan peppercorns, garlic, sesame seeds, sugar, and fruity Chinkiang black vinegar.
 
-<em>Fuqi Feipian</em> TK story. Most versions don't use actual lungs in the recipe. Instead, you can expect shavings of braised and chilled oxtail along with thin slices of tendon and tripe, paper-thin and crunchy in texture. The slices are tossed with that chili vinaigrette and served with roasted peanuts and chopped cilantro.
+<em>Fuqi feipian</em> literally translates as "married couple's offal slices," though cold sliced beef was a Chengdu staple long before the namesake married couple introduced the modern incarnation in the early 20th century . Most versions today don't use actual lungs in the recipe. Instead, you can expect shavings of braised and chilled beef tongue or heart, along with thin slices of tendon and tripe, paper-thin and crunchy in texture. The slices are tossed with that chili vinaigrette and served with roasted peanuts and chopped cilantro.
 
 If you generally avoid offal, this might be a good way to introduce yourself to it&mdash;the meat is really all about texture, its flavor almost completely dominated by the in-your-face sauce it comes soaked in.
-
-Just 
 
 ##3. Lazi Ji (Chongqing-Style Dry-Fried Chicken With Chilies)
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140629-chongqing-laziji.jpg "Lazi Ji")
 
-##4. Jaowang Chanzui Tu (Cold Diced Rabbit With Chilies and Peanuts)
+Ok, so the photo here and the dish we tried was not the most basic form of <em>lazi ji</em>, but the technique and the flavors are almost identical. It's made by taking chunks of chopped up bone-in chicken, marinating them in a strong soy-based marinade, deep frying them until they're very dry and a little chewy, then stir-frying them with a ton of dried chilies, garlic, and Sichuan peppercorns. It comes out with a uniquely crisp-chewy texture. Sichuan popcorn chicken, if you will.
+
+Our version added a couple of unique elements: fresh green Sichuan peppercorns (delicious!), along with more chopped green chilies than I've ever seen in one place.
+
+It was by far the largest pile of capsaicin I've seen in a single dish anywhere, and I've sought out spicy food everywhere around the globe. My mouth could handle it, but my stomach was begging for mercy. I had to throw in the towel about a quarter of the way through.
+
+##4. Cold Diced Rabbit With Chilies and Peanuts
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140629-chongqing-jaowang-chanzui-tu.jpg "Jaowang Chanzui Tu")
 
-##5. Mala Liangfen (Green Bean Jelly With Numbing-Hot Sauce)
+Very similar to fuqi feipian, this dish uses the same hot-numbing-sour sauce, but instead uses it to coat bite-sized chunks of poached bone-in rabbit, served cold. It's a bit of a sport trying to get at the little chunks of juicy meat through all the bones, but your reward&mdash;succulent, tender rabbit moistened with fiery chili oil&mdash;is well worth the effort.
+
+At least, I think so. Adri disagrees.
+
+##5. Chuanbei Liangfen (Mung Bean Jelly With Numbing-Hot Sauce)
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-chengdu-mala-liangfen.jpg "Mala liangfen")
 
+Another cold dish that utilizes a hot-numbing chili paste, this time over slices of cold, slippery mung bean jelly. As you taste this sauce over and over, you come to realize that its the subtleties of technique and ingredient that separate the good from the bad. At its best, it should pack plenty of heat, but that heat should come with a deep, roasted, smoky flavor, along with a raisin-like intensity, balanced by the sugar and vinegar.
+
 ##6. Dan Dan Mian (Wheat Noodles with Pork, Chili, Garlic, and Vinegar)
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-chengdu-dan-dan-mian-2.jpg "Dan dan mian 2")
+
+Everybody knows what dan dan noodles are, but the real version in Chengdu might be a bit more austere than we're used to in the west. Walk down any street and you'll see vendors left and right, with piles of fresh noodles, along with individual bowls of each condiment: black vinegar, soy sauce, dried chilies, sugar, salt, MSG, ground Sichuan peppercorns, garlic, ground peanuts, chopped scallions, chopped pickled mustard root, a vat of red chili oil, and&mdash;depending on how fancy you wanna get&mdash;ground pork from time to time.
+
+Place your order, and a small spoonful of each goes on top of (or sometimes under) the noodles&mdash;just enough for a very light coating of flavor. The dish is really all about the noodles, which were, without fail, stretchy, toothsome, and fresh, a far cry from the often mushy or pasty noodles we get back home. 
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-chengdu-dan-dan-mian.jpg "Dan dan mian 1")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-chengdu-dan-dan-mian-2.jpg "Dan dan mian 2")
+Even a version I had served from a pushcart near a bus station was insanely delicious. 
+
+Take a look at that photo and notice the thin plastic bag around the bowl. The Chinese are <em>crazy</em> about plastic bags which, while a little worrisome, perhaps beats dysentery.
 
 ##7. Shuizhu Yu
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140629-chongqing-shuizhu-yu.jpg "Shuizhu yu")
 
+Wanna see more chili oil than you've ever seen in a single place? Order yourself a bowl of <em>shuizhu yu</em> and wait for your volcano to arrive. Tender filets of  fish&mdash;often carp or catfish, occasionally sole or flounder&mdash;are marinated, brined, coated in cornstarch, and slipped into a bowl of hot broth with a thick layer of chili oil flavored with dried chilies and sichuan peppercorns on top. As you lift the slices out from their bath, they drag up through the oil, which gives them (and probably your shirt) a flavorful coating. Watch out for bones.
+
+I'm not exactly sure how they do it, but the fish is invariably moist, juicy, and almost custard-tender. This is one of my dad's favorite dishes. In the U.S. and parts of China, you'll see the dish sold as "Fei Teng Fish," named after the upscale Beijing Sichuanese restaurant that popularized it.
+
 ##8: Huigou Rou (Double-Cooked Pork Belly)
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-chengdu-huiguo-rou.jpg "Huigou rou")
+
+Did you accidentally get stuck in Sichuan with an aversino to spicy food? Huigou rou may be your savior. Made by simmering pork belly in heavily salted water, then slicing it thin and stir-frying it until crisp in a sauce flavored with fermented soy beans, plenty of leeks, and just a hint of chilies, it's essentially an entire meal that consists of bacon.
 
 ##9: Gongbao Jiding (Diced Chicken With Peanuts and Dried Chilies)
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-chengdu-gongbao-jiding-1.jpg "b!")
 
+Ever since I was a kid I've loved kung pao chicken (which at my neighborhood take-out joint was just called "Diced Chicken with Peppers and Peanuts). I've always known that the New York version, with its bell peppers, sweet and sour sauce, and cubes of celery was a far cry from the real deal. In fact, before ever even coming to China, I spent several months researching exactly how the Chengdu version is made in order to develop <a href="http://www.seriouseats.com/recipes/2010/06/real-deal-kung-pao-chicken-recipe.html">my own version of it</a>&mdash;a version which I've greatly enjoyed.
+
+I was fully prepared to have my mind blown when I tasted it for the first time in its original state. My mind <em>was</em> blown, but not for the reason I was expecting. You can't believe everything you read, it turns out. See, while my version ups the heat and funk with minimal sugar and plenty of fermented bean paste, the actual Sichuan version is far milder in both regards: no bean paste at all, and a flavor that's dominated by a honey-like sweetness, rather than chili heat. I tried it in two different well-respected restaurants just to confirm.
+
+Not that this should take away from either version&mdash;I'll continue making my own recipe from time to time&mdash;but it does mean that when I get back home, a bit more work is in order before I can claim to have a <em>real</em> Real Deal Kung Pao Chicken recipe under my belt.
+
 ##10: Mala Xiaomian (Chongqing-Style Numbing-Hot Noodle Soup)
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140629-chongqing-mala-xiaomian.jpg "mala xiaomian")
+![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140629-chongqing-mala-xiaomian.jpg"mala xiaomian")
 
 ##11: Chengdu-Style Bing (Steam-Griddled Sandwiches)
 
