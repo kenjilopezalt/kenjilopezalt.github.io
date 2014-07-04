@@ -27,7 +27,7 @@ I'm going to be totally unabashedly biased here and list them in order of my fav
 
 This is it. My favorite dish in the world and the grandmother of Sichuan cuisine. Translated literally as "pock-marked grandmother's tofu," its totally apocryphal origin story is identical to a half dozen other food origin stories: it starts with hungry crowds and a cook with few ingredients but plenty of creativity. The result is an inexpensive stew that uses simple ingredients&mdash;soft tofu, ground meat (beef or pork), fermented chili bean paste, a handful of sichuan peppercorns, and plenty of red-hot chili oil&mdash;to create simple, soul-satisfying fare.
 
-I very rarely get visibly excited about anything&mdash;I'm not sure if that makes me a stoic, or an emotionless shell of a human being&mdash;but as we sat down at <a href="http://www.chenmapo.com/ee/index.html">Chen Mapo Doufu</a, the upscale Chengdu institution that was supposedly built on the fame and recipe of Grandma Chen herself, I got a little giddy.
+I very rarely get visibly excited about anything&mdash;I'm not sure if that makes me a stoic, or an emotionless shell of a human being&mdash;but as we sat down at <a href="http://www.chenmapo.com/ee/index.html">Chen Mapo Doufu</a>, the upscale Chengdu institution that was supposedly built on the fame and recipe of Grandma Chen herself, I got a little giddy.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-chengdu-mapo-1.jpg "excited Kenji")
 
@@ -109,7 +109,7 @@ Not that this should take away from either version&mdash;I'll continue making my
 
 ##10: Mala Xiaomian (Chongqing-Style Numbing-Hot Noodle Soup)
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140629-chongqing-mala-xiaomian.jpg"mala xiaomian")
+![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140629-chongqing-mala-xiaomian.jpg "mala xiaomian")
 
 Chongqing's answer to Sichuan's dan dan mian is <em>mala xiaomian</em>, a bowl of hot noodles served in a thin but flavorful broth flavored with Sichuan pepper and chili oil (are you beginning to see a pattern here?), topped with sesame seeds and a bit of steamed cabbage. You can get this dish literally <em>anywhere</em>, though it's most often eaten for breakfast. A great way to kick your gut into gear before your day has really begun.
 
