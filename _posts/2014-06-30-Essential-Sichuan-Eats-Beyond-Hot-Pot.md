@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chengdu and Chongqing&#58; Essential Sichuan Eats (Beyond Hot Pot) 
+title: Chengdu and Chongqing&#58; 14 Essential Sichuan Eats (Beyond Hot Pot) 
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-sichuan-food.jpg "Sichuan Food Composite")
@@ -111,27 +111,41 @@ Not that this should take away from either version&mdash;I'll continue making my
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140629-chongqing-mala-xiaomian.jpg"mala xiaomian")
 
+Chongqing's answer to Sichuan's dan dan mian is <em>mala xiaomian</em>, a bowl of hot noodles served in a thin but flavorful broth flavored with Sichuan pepper and chili oil (are you beginning to see a pattern here?), topped with sesame seeds and a bit of steamed cabbage. You can get this dish literally <em>anywhere</em>, though it's most often eaten for breakfast. A great way to kick your gut into gear before your day has really begun.
+
 ##11: Chengdu-Style Bing (Steam-Griddled Sandwiches)
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-chengdu-stewed-pork-potato-sandwich.jpg "bing")
+
+I honestly have no idea what thee are called in Chinese. The bread is vaguely similar to the more common <a href="http://kenjilopezalt.github.io/2014/06/23/Chilies%2C-Noodles%2C-and-Lamb%26%2358%3B-11-Must-Eat-Dishes-in-Xi%27an-From-the-Muslim-Quarter-and-Beyond/">Xi'an</a> or <a href="http://kenjilopezalt.github.io/2014/06/21/Rou-Jia-Bing%2C-Beijing-Yogurt%2C-and-Liang-Pi-%28You-Want-to-Eat-These%29/">Beijing</a>-style bing, but quite a bit crisper, puffier, and frankly, better. Trying the bread in Chengdu after so many sandwiches in Xi'an was sort of like having a real New York pizza for the first time after a lifetime of Domino's. Familiar concept, but it shows you what a bit more technique can do.
+
+The sandwich shops offer a dizzying array of fillings, none of which I can translate, but we did our normal point-at-what-the-person-in-front-of-us-got trick and ended up with a fantastic sandwich stuffed with pork and potatoes stewed in a chili-laced broth until it almost melted into each bite.
 
 ##12: Suanla Fen (Sour and Hot Glass Noodles)
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140629-chongqing-suanla-fen-1.jpg "Suanla fen 1")
 
+We spotted this guy in the center of Chongqing's commercial district making noodles with a method I'd never seen before. After forming a stiff dough out of sweet potato starch, he then placed the dough inside a handled bowl with large perforations punched into the bottom.
+
+Do you know what a <a href="http://en.wikipedia.org/wiki/Thixotropy">thixotropic substance</a> is? It's a substance that has varying viscosities depending on how much it is flowing. Ketchup is probably the most well known&mdash;it's thick and solid until it starts moving, whereupon it suddenly starts to flow like a thin liquid, causing it to rapidly drop out of the bottle.
+
+This noodle mixture was similar. The dough, which started out stiff and firm, flowed out of the perforations like a liquid as the cook rapped the handle with a series of rhythmic blows.
+
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140629-chongqing-suanla-fen-2.jpg "Suanla fen 2")
+
+As the noodles fell into a pot of boiling water below, they set up into chewy, long strands that were then served in a sour-hot chili broth topped with peanuts and cilantro.
 
 ##13: Shaokao (Grilled Skewers)
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-chengdu-skewer.jpg "Skewers")
 
+You see grilled meats-on-a-stick everywhere in China, and the ones in Chengdu and Congqing weren't particularly better than anywhere else, but they're a quintessential snack. My favorite was chicken cartilage brushed with a spicy sauce, though little chunks of lamb and chicken wings came in prettyc close as well.
+
 ##14: Suanla Choushou (Wontons in Sour-Hot Sauce)
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-chengdu-suanla-choushou.jpg "Suanla Choushou")
 
-##15: Yu Shiang Rou Si (Sliced Pork With Mushrooms ad Pickles)
-
-![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-chengdu-yu-xiang-rou-si.jpg "Yu Xiang Rou Si")
+The wontons in Sichuan (known locally as <em>choushou</em>) aren't known for their delicate skins or flavorful fillings, but rather the sauce they come served in. Can you guess what it is? Yup: roasted chili oil, black vinegar, and garlic. These particular chaoshou, served at Chen's, were not nearly as good as the mapo doufu (I wouldn't recommend ordering them there at all, actually), but, well, only picture I got, I'm afraid.
 
 I still haven't recovered completely from eating in Sichuan and Chongqing. I wake up in the middle of the night with crippling bouts of heartburn. My guts have been torn to shreds by chilies&mdash;I've exercised China's bring-your-own-toilet-paper policy in more places than I care to admit. When I sweat, my pores ooze out pure capsaicin. Adri long ago shifted to a basic subsistence diet of plain crackers, dried fruit, and milk tea.
 
