@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Three Gorges Cruise Down the Yangzi
+title: Chongqing to Yichang&#58; Three Gorges Cruise Down the Yangzi
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-01.jpg "Three Gorges Cruise")

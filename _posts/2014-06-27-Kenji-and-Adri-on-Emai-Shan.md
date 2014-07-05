@@ -1,6 +1,6 @@
 ---
 layout: post
-title: On Emai Shan
+title: On Mount Emai&#58; Times I Wish I'd Packed Lighter
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140627-emei-shan-/20140627-emei-shan-03.jpg "Emai Shan")

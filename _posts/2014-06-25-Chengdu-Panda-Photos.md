@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Look at the Cute Pandas!
+title: Chengdu&#58; Look at the Cute Pandas!
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140625-pandas-/20140625-pandas-05.JPG "Pandas")

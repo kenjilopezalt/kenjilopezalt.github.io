@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Feet Cleaning Fish
+title: Wuhan&#58; Feet Cleaning Fish
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140702-wuhan-feet-fish/20140702-wuhan-feet-fish-1.jpg "Wuhan Feet Fish")

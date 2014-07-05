@@ -3,6 +3,8 @@ layout: post
 title: Chengdu and Chongqing&#58; 14 Essential Sichuan Eats (Beyond Hot Pot) 
 ---
 
+Location: Sichuan and Chongqing Provinces
+
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140628-sichuan-food/20140625-sichuan-food.jpg "Sichuan Food Composite")
 
 Wanna know how great Adri is? She's the kind of wife who is sporting enough to endure a <a href="">nerve-wracking, immune-system-testing, 16-hour train ride</a> all so that her loving but often demanding and occasionally insane husband could taste a single dish of food at a single restaurant. It's a food (and in fact an entire cuisine) that she doesn't even <em>like</em>. Isn't that sweet?

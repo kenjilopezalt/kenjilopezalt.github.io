@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Xi'an to Chengdu&#58;Traveling in China? You'd Best Buy Your Train Tickets Early. 
+title: Xi'an to Chengdu&#58; Traveling in China? You'd Best Buy Your Train Tickets Early. 
 ---
 
 Location: Overnight train K879, from Xi'an to Chengdu, China
