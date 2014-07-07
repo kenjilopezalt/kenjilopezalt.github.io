@@ -17,16 +17,20 @@ Waking up at 5AM wouldn't be so bad if it happened to be after a good night's sl
 
 Ladies and gentlemen, welcome aboard the pride of the yangtzi. Please disregard all posted signs, especially the ones that says "no spitting anywhere," and "no smoking."
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-05.jpg "Three Gorges Cruise")
+I'm not normally a "cruise" kind of guy. I've taken one cruise in my life, but after <a href="http://kenjilopezalt.github.io/2014/06/17/Beijing-bound/">a hectic week in Beijing</a>, followed by some <a href="http://kenjilopezalt.github.io/2014/06/27/Kenji-and-Adri-on-Emai-Shan/">heavy hiking on Emai Shan</a> (complete with asshole monkeys), and a few more hectic days <a href="http://kenjilopezalt.github.io/2014/06/30/Essential-Sichuan-Eats-Beyond-Hot-Pot/">in Sichuan and Chongqing</a>, a slow, lazy, romantic cruise on the Yangzi river, surrounded by the famous Three Gorges sounded pretty heavenly, and we decided to go full-immersion by skipping the International cruise lines and opting for an operator who catered to Chinese tourists. Apart from a sweet young Swiss girl traveling alone, we were the only non-Chinese tourist on the trip.
 
-I'm not normally a "cruise" kind of guy. I've taken one cruise in my life, but after <a href="http://kenjilopezalt.github.io/2014/06/17/Beijing-bound/">a hectic week in Beijing</a>, followed by some <a href="http://kenjilopezalt.github.io/2014/06/27/Kenji-and-Adri-on-Emai-Shan/">heavy hiking on Emai Shan</a> (complete with asshole monkeys), and a few more hectic days <a href="http://kenjilopezalt.github.io/2014/06/30/Essential-Sichuan-Eats-Beyond-Hot-Pot/">in Sichuan and Chongqing</a>, a slow, lazy, romantic cruise on the Yangzi river, surrounded by the famous Three Gorges sounded pretty heavenlt.
+
+As we were herded aboard our ship via a long concrete staircase (the funicular next to the stairs looked like it hadn't moved up or down its rusted tracks for decades), the first thing we noticed was the smell. Water-bound vessels always have some kind of pungent aroma. That comes with the territory. But this was something different.
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-09.jpg "Three Gorges Cruise")
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-05.jpg "Three Gorges Cruise")
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-04.jpg "Three Gorges Cruise")
 
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-07.jpg "Three Gorges Cruise")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-09.jpg "Three Gorges Cruise")
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-10.jpg "Three Gorges Cruise")
 
