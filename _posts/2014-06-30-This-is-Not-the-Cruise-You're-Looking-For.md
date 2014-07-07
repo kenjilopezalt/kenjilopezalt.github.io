@@ -41,7 +41,7 @@ I was correct, but it's not <em>all</em> the room was. It was also the lone publ
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-09.jpg "Toilet")
 
-
+I suppose this does qualify as a Western toilet, 
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-05.jpg "Laundry")
 
