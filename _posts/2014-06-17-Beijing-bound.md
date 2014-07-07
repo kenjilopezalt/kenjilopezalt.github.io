@@ -35,7 +35,7 @@ I find that with most restaurants, it’s pretty easy to negotiate a deal even i
 
 We planned for the worst and hoped for the best and ended up getting more than we thought we would.
 
-First up, a plate of peanuts, boiled in salted water flavored with star anise. I’ve never loved boiled peanuts, but these guys were tasty, and a good accompaniment to the incredible cheap beer. Ah, Beijing, where the beer flows like wine, and the wine flows like expense accounts.
+First up, a plate of peanuts, boiled in salted water flavored with star anise. I’ve never loved boiled peanuts, but these guys were tasty, and a good accompaniment to the incredible cheap beer. Ah, Beijing, where the beer flows like water, and the water flows like grimy streams down the sidewalk.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140618-Beijing-dumpling-lamb-skewer-/20140618-Beijing-dumpling-lamb-skewer-01.jpg "Folding")
 
