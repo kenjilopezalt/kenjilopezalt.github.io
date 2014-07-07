@@ -9,7 +9,7 @@ It's 5AM and I'm woken up by an earsplitting, crackling hiss, followed by  pre-r
 
 I'm fairly certain that the best and brightest minds in China have been hard at work coming up with a series of sounds scientifically proven to be the most efficient way to deprive innocent ship passengers of sleep. If hell had a waiting room, this would be the soundtrack.
 
-This, by the way, is the same noise I awoke to yesterday morning at 5AM. It was on a repeated loop that played continuously until 7, when it finally gave way to China's normal soundtrack: loogie hocking, coughing, and the dramatically-loud pitter patter of unrestrained children. I'm fairly certain it's going to happen again today.
+This, by the way, is the same noise I awoke to yesterday morning at 5AM. It was on a repeated loop that played continuously until 7, when it finally gave way to China's normal soundtrack: loogie hocking, coughing, and the dramatically-loud pitter patter of unrestrained children. I'm fairly certain it's going to happen again today. The only upside is that it drowns out the noise of the air conditioning unit, which does nothing but cycle the same wet air around the room, occasionally giving out a little gurgling groan to let you know that it's still alive and you better not unplug it or you'll be cut out of the will.
 
 Waking up at 5AM wouldn't be so bad if it happened to be after a good night's sleep in a comfortable bed to the smell of a hot breakfast being prepared. Instead, everything is damp. And I mean <em>everything</em>. The bed is damp. The sheets are damp and moldy-smelling. The pillows are damp. My hair is damp (and I don't even <em>have</em> hair right now). The carpet, coated in decades of grime and spit, are damp. The dried spicy shredded squid I bought as a snack packed in a sealed plastic pouch with a packet of silicone desiccant is damp. Even the ultra-fast-drying synthetic fiber clothes, which we were assured would have to break the basic laws of thermodynamics in order to get damp, are damp.
 
@@ -21,16 +21,27 @@ I'm not normally a "cruise" kind of guy. I've taken one cruise in my life, but a
 
 As we were herded aboard our ship via a long concrete staircase (the funicular next to the stairs looked like it hadn't moved up or down its rusted tracks for decades), the first thing we noticed was the smell. Water-bound vessels always have some kind of pungent aroma. That comes with the territory. But this was something different. After locating the source of the stench&mdash;which I'll get to&mdash;we seriously considered eating the cost of the tickets and stepping off before we even left port. In retrospect, I kinda wish we had.
 
+![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-07.jpg "Interior")
+
 The ship itself was a sort of floating time machine. The interior, with its wall-to-wall carpeting complete with cigarette burns and spit-stains looked like a dim sum restaurant that hasn't been cleaned or redecorated since 1972. The main lounge had two wooden benches (also burned with cigarettes), a chandelier with 16 lights (only three worked), a refrigerator full of warm beer and red bull, and a counter that sold dried squid, <em>baiju</em> (Chinese firewater) and instant noodles.
 
 Through the smoke-filled haze that had already permeated the room, I could barely make out a "no smoking" sign above one of the benches. It was right next to a sign that said "No spitting." In case that sign wasn't specific enough, there was a third sign on the wall that said "No spitting ANYWHERE."
 
 Perhaps there was a fourth sign somewhere on that wall that read "Please disregard all posted signs," but I got distracted by the noise of a gob of spit smacking into the dingy carpet while I was looking for it.
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-07.jpg "Interior")
+Walking up the curved staircase to the second level of the lounge, I saw a long line of tourists, each one carrying a large thermos in their hand. <em>Ah, that door down there must be where you fill up your hot water bottle for instant noodles and tea,</em> I though.
 
+I was correct, but it's not <em>all</em> the room was. It was also the lone public restroom on the boat, and the source of the offensive odors. Why did it smell so bad, you ask? Because already, before we even left port, the squat toilet had been clogged. A layer of brown, streaky piss was slicked across the floor*&mdash;you had to step into it to get at the hot water dispenser. The clog was so severe that murky brown water was backing up into the sink. Folks were standing in piss, holding their thermoses inches above raw sewage in order to fill them with the water that they'd be cooking with and drinking from for the next three days.
+
+<small>*If there's one advantage to the Chinese' steadfast refusal to supply toilet paper to the public, it's that at least when bathroom floor are covered in piss or worse, you don't get any of those disgusting pulpy masses of paper along the floor.</small>
+
+<em>It's OK</em>, I said to Adri as I saw her eyes widening in horror, her body instinctively drifting towards the nearest exit. <em>We'll just avoid public spaces. So long as we have safe refuge in our First Class, Air-conditioned cabin, complete with Western toilet and in-room shower, we'll be able to relax, right?</em> I said to her as the ship finally pulled out into the brown, muddy water of the Yangzi.
+
+"The horror! The horror!" I whispered weakly as the door creaked open.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-09.jpg "Toilet")
+
+
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-05.jpg "Laundry")
 
@@ -44,3 +55,5 @@ Perhaps there was a fourth sign somewhere on that wall that read "Please disrega
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-15.jpg "Nice gorges")
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-16.jpg "Nice gorge portrait")
+
+China is a wonderful country to visit with incredible food, gorgeous scenery, and a rich history. 
