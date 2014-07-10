@@ -5,9 +5,13 @@ title: Chengdu&#58; Look at the Cute Pandas!
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140625-pandas-/20140625-pandas-05.JPG "Pandas")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140625-pandas-/20140625-pandas-06.JPG "Pandas")
+China ain't exactly well-known as a beacon of animal rights, but the <a href="http://www.panda.org.cn/english/">Chengdu Research Base of Giant Panda Breeding</a> is by all means one of the most well-run animal research and conservation organizations I've ever visited.
+
+Chengdu was one of the highlights of our three weeks in China, and visiting the Panda Research Base was part of the reason.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140625-pandas-/20140625-pandas-07.JPG "Pandas")
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140625-pandas-/20140625-pandas-06.JPG "Pandas")
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140625-pandas-/20140625-pandas-12.JPG "Pandas")
 

@@ -47,19 +47,25 @@ I suppose this does qualify as a Western toilet, though it may as well have been
 
 <em>Well</em>, I thought, <em>so long as we can use the sink, at least we can stay mildly clean.</em>
 
-I turned on the tap. As soon as water started circling down, a wave of raw sewage odors shot up out of the drain. I quickly glanced under the sink and saw the problem: it was a straight PVC tube going down to the floor. No U-bend, no valve, literally nothing separating the river of sewage that ran under our room from every other toilet on the same floor and the drain in our sink.
+I turned on the tap. As soon as water started circling down, a wave of raw sewage odors shot up out of the drain. I quickly glanced under the sink and saw the problem: it was a straight PVC tube going down to the floor. No U-bend, no valve, literally nothing separating the river of sewage that ran under our room from every other toilet on the same floor and the drain in our sink. We slammed the door shut, mentally slapping an "Open in case of emergencies only" sticker across it*
 
+<small>*a situation that actually <em>did</em> arise the next day, no doubt after I, in a state of famished desperation, risked using the on-board hot water to cook a pot of instant noodles. Big mistake.</small>
 
+We went for a wander to the upper observation deck, and nearly burst out laughing when we found that the "shaded observation area" had already been strung up end to end with underwear, pajamas, and t-shirts attempting to dry in the evening mist.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-05.jpg "Laundry")
 
+We laughed even harder when we realized that it had only been 20 minutes since we boarded, which meant that folks must have come onto the ship fully prepared to wash their clothes <em>immediately</em> in order to get at the prime drying spots before anyone else. That laundry stayed up there for the remainder of the trip.
+
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-04.jpg "Kenji and Adri")
 
-There were, of course, a few upsides. The Three Gorges themselves were relatively impressive, though the Smaller Three Gorges, which you reach via a day trip on a series of smaller and smaller boats were even more so.
+There were some upsides, but they were few and far between. The "towns" you stop to visit are either strings of shops selling tourist knick knacks, or large, industrial, concrete numbers (sometimes both). The Three Gorges themselves are relatively impressive, though I hear that they are far less so after the construction of the Three Gorges dam.
+
+The Smaller Three Gorges, which you reach via a day trip on a mid-sized boat followed by a small wooden skiff were even nicer than the actual Three Gorges.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-10.jpg "Three gorges umbrellas")
 
-The mid-sized boat you take to access the Smaller Three Gorges has an upper-upper deck where you can pay 30 Yuan for a cup of tea, which then allows you to sit up there for the remainder of the 6 hour trip. This, at east, saves you from being shoved mercilessly by umbrella-toting grannies.
+The mid-sized boat you take to access the Smaller Three Gorges has an upper-upper deck where you can pay 30 Yuan for a cup of tea, which then allows you to sit up there for the remainder of the 6 hour trip. This, at least, saves you from being shoved mercilessly by umbrella-toting grannies.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-15.jpg "Nice gorges")
 
