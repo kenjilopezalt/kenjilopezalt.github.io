@@ -9,6 +9,8 @@ China ain't exactly well-known as a beacon of animal rights, but the <a href="ht
 
 Chengdu was one of the highlights of our three weeks in China, and visiting the Panda Research Base was part of the reason.
 
+<iframe width="514" height="386" src="//www.youtube.com/embed/MKz0iLB2VaU" frameborder="0" allowfullscreen></iframe>
+
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140625-pandas-/20140625-pandas-07.JPG "Pandas")
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140625-pandas-/20140625-pandas-06.JPG "Pandas")
