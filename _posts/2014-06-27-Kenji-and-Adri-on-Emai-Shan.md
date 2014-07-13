@@ -7,7 +7,7 @@ title: On Mount Emai&#58; Times I Wish I'd Packed Lighter
 
 After some wildly delicious food in Chengdu, Adri and I made our way over to Emai Shan, one of the four holy Buddhist mountain sites in China, and a place of unspeakable natural beauty.
 
-The town of Emai itself is not much to look at or visit. People use it and the nearby town of TK Baoguo village as their base camp when taking the multi-day trek up and down Mt. Emai. Covered in fir, cedar, and bamboo trees, the mountain is over 3,000 meters tall, and while the path up and down the mountain is paved in stone and has resting points ever few kilometers, it's still a good 30 kilometer trek during which time you're constantly going up and down stairs and takes most young folks a good 10 to 12 hours to complete one-way.
+The town of Emai itself is not much to look at or visit. People use it and the nearby town of Baoguo village as their base camp when taking the multi-day trek up and down Mt. Emai. Covered in fir, cedar, and bamboo trees, the mountain is over 3,000 meters tall, and while the path up and down the mountain is paved in stone and has resting points ever few kilometers, it's still a good 30 kilometer trek during which time you're constantly going up and down stairs and takes most young folks a good 10 to 12 hours to complete one-way.
 
 In other words, it's not the kind of climb an out-of-shape food-writing schlub like myself should take on lightly.
 
@@ -57,7 +57,7 @@ She just walked right up, hissed at me, bared her teeth, jumped onto my bakpack,
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140627-emei-shan-/20140627-emei-shan-04.jpg "Emai Shan")
 
-You know how <a href=“http://kenjilopezalt.github.io/2014/06/18/SO-MANY-DUMPLINGS/“>I've mentioned that nobody in China seems to follow posted signs?</em> I couldn't help but to think that perhaps the monkeys are learning from us as I watched that monkey eat my chips one by one, daring me to do something about it.
+You know how <a href=“http://kenjilopezalt.github.io/2014/06/18/SO-MANY-DUMPLINGS/“>I've mentioned that nobody in China seems to follow posted signs?</a> I couldn't help but to think that perhaps the monkeys are learning from us as I watched that monkey eat my chips one by one, daring me to do something about it.
 
 <em>Good friends of mankind, my ass</em>.
 
