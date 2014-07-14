@@ -15,16 +15,16 @@ This is the third and most frequently successful:
 
 ##Step 2:
 
-![alt-text-here](http://kenjilopezalt.github.io/images/Nong-Khai/20140711-happy-adri-orange-juice-/20140711-happy-adri-orange-juice-1.jpg "Happy Adri Orange Juice")
+![alt-text-here](http://kenjilopezalt.github.io/images/Nong-Khai/20140711-happy-adri-orange-juice-/20140711-happy-adri-orange-juice-2.jpg "Happy Adri Orange Juice")
 
 
-##Step 3:
+##Step 3
 
-![alt-text-here](http://kenjilopezalt.github.io/images/Nong-Khai/20140711-happy-adri-orange-juice-/20140711-happy-adri-orange-juice-1.jpg "Happy Adri Orange Juice")
+![alt-text-here](http://kenjilopezalt.github.io/images/Nong-Khai/20140711-happy-adri-orange-juice-/20140711-happy-adri-orange-juice-3.jpg "Happy Adri Orange Juice")
 
 ##Step 4:
 
-![alt-text-here](http://kenjilopezalt.github.io/images/Nong-Khai/20140711-happy-adri-orange-juice-/20140711-happy-adri-orange-juice-1.jpg "Happy Adri Orange Juice")
+![alt-text-here](http://kenjilopezalt.github.io/images/Nong-Khai/20140711-happy-adri-orange-juice-/20140711-happy-adri-orange-juice-4.jpg "Happy Adri Orange Juice")
 
 Ta-da!
 
