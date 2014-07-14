@@ -23,6 +23,8 @@ As we were herded aboard our ship via a long concrete staircase (the funicular n
 
 The ship itself was a sort of floating time machine. The interior, with its wall-to-wall carpeting complete with cigarette burns and the stains of every bodily fluid you can name and a few you can't, looked like a dim sum restaurant that hasn't been cleaned or redecorated since 1972. The main lounge had two wooden benches (also burned with cigarettes), a chandelier with 16 lights (only three worked), a refrigerator full of warm beer and red bull, and a counter that sold dried squid, <em>baiju</em> (Chinese firewater) and instant noodles.
 
+The warm beer and baiju would become my best friends for the next coupe of days.
+
 Through the smoke-filled haze that had already permeated the room, I could barely make out a "no smoking" sign above one of the benches. It was right next to a sign that said "No spitting." In case that sign wasn't specific enough, there was a third sign on the wall that said "No spitting ANYWHERE."
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-07.jpg "Interior")
@@ -47,9 +49,9 @@ I suppose this does qualify as a Western toilet, though it may as well have been
 
 <em>Well</em>, I thought, <em>so long as we can use the sink, at least we can stay mildly clean.</em>
 
-I turned on the tap. As soon as water started circling down, a wave of raw sewage odors shot up out of the drain. I quickly glanced under the sink and saw the problem: it was a straight PVC tube going down to the floor. No U-bend, no valve, literally nothing separating the river of sewage that ran under our room from every other toilet on the same floor and the drain in our sink. We slammed the door shut, mentally slapping an "Open in case of emergencies only" sticker across it*
+I turned on the tap. As soon as water started circling down, a wave of raw sewage odors shot up out of the drain. I quickly glanced under the sink and saw the problem: it was a straight PVC tube going down to the floor. No U-bend, no valve, literally nothing separating the river of sewage that ran under our room from every other toilet on the same floor and the drain in our sink. We slammed the door shut, mentally slapping an "Open in case of emergencies only" sticker across it.*
 
-<small>*a situation that actually <em>did</em> arise the next day, no doubt after I, in a state of famished desperation, risked using the on-board hot water to cook a pot of instant noodles. Big mistake.</small>
+<small>*An emergency situation  actually <em>did</em> arise the next day, no doubt after I, in a state of famished desperation, risked using the on-board hot water to cook a pot of instant noodles. Big mistake.</small>
 
 We went for a wander to the upper observation deck, and nearly burst out laughing when we found that the "shaded observation area" had already been strung up end to end with underwear, pajamas, and t-shirts attempting to dry in the evening mist.
 
@@ -66,6 +68,10 @@ The Smaller Three Gorges, which you reach via a day trip on a mid-sized boat fol
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-10.jpg "Three gorges umbrellas")
 
 The mid-sized boat you take to access the Smaller Three Gorges has an upper-upper deck where you can pay 30 Yuan for a cup of tea, which then allows you to sit up there for the remainder of the 6 hour trip. This, at least, saves you from being shoved mercilessly by umbrella-toting grannies.
+
+I have never been shoved around as much as I have been for the last couple weeks in China. People will literally hold you back with their hand as they cut into a line just as you're about to start talking to a cashier or ticket-seller without even offering a bit of eye contact by way of an "excuse me." The only upside to it is that nobody seems to care if you call them out on it and shove them right back out. And the shoving seems to know no age, gender, or class borders either. You're just as likely to get shoved by a young, well-dressed young girl in high heels as by a disheveled grandmother with a pushcart or a man in a business suit.
+
+Like countries that have a haggling culture, it's a part of every day life that I just find extremely unpleasant.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140630-three-gorges-yangzi-river-tour-/20140630-three-gorges-yangzi-river-tour-15.jpg "Nice gorges")
 
