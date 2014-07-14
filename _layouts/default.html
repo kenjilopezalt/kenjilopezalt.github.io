@@ -1,0 +1,35 @@
+<!DOCTYPE html PUBLIC "-//W3C//DTD HTML 4.01//EN" "http://www.w3.org/TR/html4/strict.dtd">
+<html>
+<head>
+  <meta http-equiv="Content-Type" content="text/html; charset=utf-8">
+  <meta http-equiv="Content-Style-Type" content="text/css">
+  <title></title>
+  <meta name="Generator" content="Cocoa HTML Writer">
+  <meta name="CocoaVersion" content="1265.2">
+  <style type="text/css">
+    p.p1 {margin: 0.0px 0.0px 0.0px 0.0px; font: 12.0px Times}
+    p.p4 {margin: 0.0px 0.0px 0.0px 0.0px; font: 12.0px Times; min-height: 14.0px}
+    p.p5 {margin: 0.0px 0.0px 12.0px 0.0px; font: 12.0px Times}
+    li.li1 {margin: 0.0px 0.0px 0.0px 0.0px; font: 12.0px Times}
+    li.li3 {margin: 0.0px 0.0px 0.0px 0.0px; font: 10.0px Times}
+    span.s1 {font: 14.0px Times; text-decoration: underline ; color: #0000ee}
+    span.s2 {font: 14.0px Times}
+    span.s3 {font: 12.0px Times; color: #042eee}
+    span.s4 {text-decoration: underline}
+    span.s5 {font: 12.0px Times}
+    ul.ul1 {list-style-type: disc}
+  </style>
+</head>
+<body>
+<p class="p1">{% include head.html %}</p>
+<h3 style="margin: 0.0px 0.0px 14.0px 0.0px; font: 12.0px Times"><span class="s1"><a href="file:///Users/Kenjialt/Documents/github/kenjilopezalt.github.io/_layouts/%7B%7B%20site.baseurl%20%7D%7D"><b>{{ site.title }}</b></a></span><span class="s2"><b> </b></span><b>{{ site.tagline }}</b></h3>
+<ul class="ul1">
+  <li class="li1">{% for post in site.posts %}</li>
+  <li class="li3"><span class="s3"><a href="file:///Users/Kenjialt/Documents/github/kenjilopezalt.github.io/_layouts/%7B%7Bpost.url%7D%7D"><span class="s4">{{post.title}}</span></a></span><span class="s5"> </span>{{ post.date | date_to_string }}</li>
+  <li class="li1">{% endfor %}</li>
+</ul>
+<p class="p4"><br></p>
+<p class="p1">{{ content }}</p>
+<p class="p5">© {{ site.time | date: '%Y' }}. All rights reserved.</p>
+</body>
+</html>
