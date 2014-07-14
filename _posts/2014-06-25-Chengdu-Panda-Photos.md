@@ -11,7 +11,7 @@ Chengdu&mdash;a 20 million + person city that still feels in many ways like a sm
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140625-chengdu-/20140625-chengdu-jinli-4.jpg "Adri on Jinli")
 
-There's not an awful lot by way of touristy sites compared to, say, <a href=“http://kenjilopezalt.github.io/2014/06/17/Beijing-bound/“>Beijing</a>, but it has its cute little Disney-style walking streets (take a stroll down pretty Jinli, but don't bother ordering food or drink there, it is overpriced and not particularly good), and quite a few really lovely "public" parks, in quotes because you have to pay a nominal fee to get into them.
+There's not an awful lot by way of touristy sites compared to, say, <a href=“http://kenjilopezalt.github.io/2014/06/17/Beijing-bound/“>Beijing</a>, but it has its cute little Disney-style walking streets (take a stroll down pretty Jinli, but don't bother ordering food or drink there, it is overpriced and not particularly good), and quite a few really lovely public parks.
 
 Once inside, you can participate in such varied activities as singing with old folks, practicing ballroom dance with old folks, drinking tea with old folks, or&mdash;my favorite&mdash;getting your ears cleaned by young men.
 
