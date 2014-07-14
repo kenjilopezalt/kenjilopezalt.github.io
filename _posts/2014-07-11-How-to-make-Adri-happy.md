@@ -22,11 +22,9 @@ This is the third and most frequently successful:
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Nong-Khai/20140711-happy-adri-orange-juice-/20140711-happy-adri-orange-juice-3.jpg "Happy Adri Orange Juice")
 
-##Step 4:
+##Ta-da!
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Nong-Khai/20140711-happy-adri-orange-juice-/20140711-happy-adri-orange-juice-4.jpg "Happy Adri Orange Juice")
-
-Ta-da!
 
 These little oranges are lime green, smooth-skinned, and about the size of a golf ball. If anything, they look more like our limes back home, but cut into them and you're greeted with bright orange flesh. Thai oranges are extremely low in acid and quite sweet, which makes for a sweet juice that the Thais like to sweeten up even more by adding a ladleful of sugar water. We quickly learned to ask for only a drop of sweetener in our juice.
 
