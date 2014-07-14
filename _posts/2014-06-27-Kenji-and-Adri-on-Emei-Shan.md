@@ -147,9 +147,11 @@ I even got to strip down to my underwear for a quick shower under a gushing wate
 
 A shower that was only partially interrupted by a Chinese couple who didn't notice me in the background.
 
+![alt-text-here](http://kenjilopezalt.github.io/images/20140627-emei-shan-/20140627-emei-shan-67.jpg "Emei Shan")
+
 We were in great spirits as we passed this pretty pagoda on a small formation reached by two bridges:
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140627-emei-shan-/20140627-emei-shan-67.jpg "Emei Shan")
+![alt-text-here](http://kenjilopezalt.github.io/images/20140627-emei-shan-/20140627-emei-shan-72.jpg "Emei Shan")
 
 Pretty, right?
 
@@ -168,8 +170,6 @@ We started down the staircase sullenly, our feet leaden and our wills battered, 
 The road was hard going. Unlike the well-trodden stone pathway up to the top of the mountain, this path seemed like it hadn't been used in years, probably because it <em>hadn't</em>. The guardrails had long since collapsed, leaving cracked concrete stumps. The stones were covered in a thick layer of moss, trees and grasses sprouting up between them. That's when they were there, at least. In many spots, the stones had been completely swept away, leaving a wall of rocks on our right and a steep drop-off to a rocky, flowing river on our left, with streams and waterfalls cutting across our path.
 
 What few structures we came across were abandoned, their wooden roofs long ago rotted in, their moss-covered walls crawling with centipedes.
-
-![alt-text-here](http://kenjilopezalt.github.io/images/20140627-emei-shan-/20140627-emei-shan-72.jpg "Emei Shan")
 
 Remember those goofy Chinglish signs we saw earlier up on top of the mountain? If only there had <em>been</em> a handrail for us, loving life, at this moment to not turn round. Unfortunately, all there was blocking us from the slippery fate of a hundred meter drop was the questionable grip our shoes held on the mud-slicked stones.
 
@@ -211,6 +211,6 @@ It's  a particularly nice trip to make if you want to get away from those sites 
 
 ## Epilogue
 
-Later on that night I decided to reward myself for two days of good exercise with a massage at the one fancy hotel in Emei. What I got was the absolute least relaxing massage I've ever had in my life. The room itself was gorgeous, the massage chairs were soft, clean, and comfy, and the masseuse seemed to know what she was doing&mdash;at least, when she wasn't checking messages on her cell phone. But man, is it difficult to relax when four hotel employees are watching Chinese sitcoms on TV with the volume at full blast in the same room where you're getting your massage, all while eating, burping, clearing their throats, and spitting directly on that gorgeous marble floor.
+Later on that night I decided to reward myself for two days of good exercise with a massage at the one fancy hotel in Baoguo. What I got was the absolute least relaxing massage I've ever had in my life. The room itself was gorgeous, the massage chairs were soft, clean, and comfy, and the masseuse seemed to know what she was doing&mdash;at least, when she wasn't checking messages on her cell phone. But man, is it difficult to relax when four hotel employees are watching Chinese sitcoms on TV with the volume at full blast in the same room where you're getting your massage, all while eating, burping, clearing their throats, and spitting directly on that gorgeous marble floor.
 
 WTF, China?
