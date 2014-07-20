@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Chiang Mai&#58; Visiting Elephants at Chang Siam Elephant Park
+title: [DRAFT - PHOTOS ONLY] Chiang Mai&#58; Visiting Elephants at Chang Siam Elephant Park
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Chiang-Mai/20140708-chiang-mai-elephants-/20140708-chiang-mai-elephants-01.jpg "Chang Siam Elephants")
