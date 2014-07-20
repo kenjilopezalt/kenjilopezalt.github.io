@@ -33,4 +33,4 @@ title: Nong Khai&#58; Sala Keoku's Well Worth a Visit
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Nong-Khai/20140711-nong-khai-sculpture-park-/20140711-nong-khai-sculpture-park-15.jpg "Sala Keoku")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/Nong-Khai/20140711-nong-khai-sculpture-park-/20140711-nong-khai-sculpture-park-016.jpg "Sala Keoku")
+![alt-text-here](http://kenjilopezalt.github.io/images/Nong-Khai/20140711-nong-khai-sculpture-park-/20140711-nong-khai-sculpture-park-16.jpg "Sala Keoku")
