@@ -1,6 +1,6 @@
 ---
 layout: post
-title: [DRAFT - PHOTOS ONLY] Sweet and Savory Cuisine in Shanghai
+title: DRAFT Sweet and Savory Cuisine in Shanghai
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/jesse/20140704-shanghai-cuisine-01.jpg "Shanghai Cuisine")

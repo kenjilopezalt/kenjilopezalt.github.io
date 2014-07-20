@@ -1,6 +1,6 @@
 ---
 layout: post
-title: [DRAFT - PHOTOS ONLY] Eating Soup Dumplings in Shanghai? Xiao Long Bao are Only Half the Story
+title: DRAFT Eating Soup Dumplings in Shanghai? Xiao Long Bao are Only Half the Story
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-01.jpg "Shanghai Dumplings")

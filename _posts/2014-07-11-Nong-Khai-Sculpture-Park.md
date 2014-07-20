@@ -1,6 +1,6 @@
 ---
 layout: post
-title: [DRAFT - PHOTOS ONLY] Nong Khai&#58; Sala Keoku's Well Worth a Visit
+title: DRAFT Nong Khai&#58; Sala Keoku's Well Worth a Visit
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Nong-Khai/20140711-nong-khai-sculpture-park-/20140711-nong-khai-sculpture-park-01.jpg "Sala Keoku")
