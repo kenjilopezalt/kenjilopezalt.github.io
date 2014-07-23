@@ -3,7 +3,7 @@ layout: post
 title: Overnight Train From Surat Thani to Bangkok&#58; Where are my Shoes?
 ---
 
-I woke up this morning with just a slight crick in my back, thanks to the just-shy-of-comfortable bottom bunk on a sleeper train headed for Bangkok from Surat Thani, Southern Thailand's port of departure for the islands of Koh Samui, Koh Phangan, and Koh Tao&mdash.
+I woke up this morning with just a slight crick in my back, thanks to the just-shy-of-comfortable bottom bunk on a sleeper train headed for Bangkok from Surat Thani. This is the third leg of our five-leg trip from the island paradise of Koh Samui in the Gulf of Thailand to Siem Reap in Cambodia. The first leg was a 45 minute boat ride to the mainland, followed by a two hour bus ride to the train station.
 
 The way these Thai sleepers work is that each berth consists of two seats facing each other. Between 7 and 8pm, a conductor walks through each car, asking you to stand in the aisle as he pulls out each seat until it lies flat, forming a semi-solid frame on top of which he places a thin mattress and bedding. The top bunk folds out of the wall like a murphy bed.
 
@@ -17,7 +17,7 @@ On the whole, the trains in Thailand are far more pleasant than those in China (
 
 No, the relative pleasantness of Thai trains largely comes down to two things: There is far less spitting and yelling on Thai trains, and the bathrooms, while not sparkling clean, are at the very least sanitary and odor-free. Still, they aren't the kind of place that you want to step into barefoot. I swing my feet over the edge of the bed and put them down into my shoes, which I've left sitting on the floor, as everyone does. Instead of slipping into the comfortably contoured faux-suede surface of my well broken-in Tevas, I hit cold upholstry instead. I swing my feet around, feeling around for the sandals.
 
-<em>Nothing.<em>
+<em>Nothing.</em>
 
 Perhaps they were accidentally kicked under the bed or down the aisle? I kneel on the floor, peering under my own bed and the next three beds around me. They're definitely, definitely gone. At some point between 2am&mdash;the last time I visited the restroom&mdash;and 7am, someone had stolen my shoes. Picked them up off the floor, and walked off with them.
 
