@@ -21,7 +21,7 @@ Fortunately, there's one street in Shanghai where you can taste <em>both</em> of
 
 ##Jia Jia Xiao Long Bao
 
-Jia Jia Xiao Long Bao, located at number 90 on Huanghe Road (an easy walk from People's Park) is a Shanghai institution, serving what many claim are the best soup dumplings in the city. We went on the advice of Ken Phang, Serious Eater and long-time Shanghai resident to check it out.
+<a href="http://www.tripadvisor.com/Restaurant_Review-g308272-d1015824-Reviews-Jia_Jia_Tang_Bao-Shanghai.html">Jia Jia Xiao Long Bao</a>, located at number 90 on Huanghe Road (an easy walk from People's Park) is a Shanghai institution, serving what many claim are the best soup dumplings in the city. We went on the advice of Ken Phang. A Serious Eater and long-time Shanghai resident, Ken makes a living opening resturants in Shanghai, so he knows whereof he speaks.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-07.jpg "Jia jia exterior")
 
@@ -45,28 +45,59 @@ The wrappers are passed to the final set of hands, who use a thin pastry brush t
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-06.jpg "Crimping dumplings")
 
-For anyone who's tried to <a href="http://www.seriouseats.com/2011/04/how-to-make-soup-dumplings-chinese-appetizers.html">make their own soup dumplings</a>, you
+For anyone who's tried to <a href="http://www.seriouseats.com/2011/04/how-to-make-soup-dumplings-chinese-appetizers.html">make their own soup dumplings</a>, now is the moment to be impressed. These guys are pros, churning out perfect little purses in seconds flat. Faster than Latino prep cooks at Shanghai Cafe Deluxe. Faster than the folks with sneeze-guards in the hospital-clean kitchens of Taiwanese chain <a href="http://www.seriouseats.com/2012/02/is-din-tai-fung-the-gold-standard-for-soup-dumplings.html">Din Tai Fung</a>. Super, super fast.
+
+Now is when your mouth should start to water just a little bit.
+
+We were seated and almost immediately brought a bowl of the soup.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-01.jpg "Blood and egg soup")
 
+Oops. Turns out I accidentally ordered the egg and blood soup, not the seaweed soup. Normally this wouldn't be a huge issue&mdash;I actually quite like blood&mdash;but I was very recently diagnosed with hemochromatosis, which means that I need to keep a watch on my iron intake. Blood is just about the worst thing I can eat. I ate one cube for the sake of research (tasty enough, though the broth was a little thin and bland), then let the soup be before the main event was delivered.
+
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-02.jpg "XLB from Jia Jia")
 
-Taiwanese chain <a href="http://www.seriouseats.com/2012/02/is-din-tai-fung-the-gold-standard-for-soup-dumplings.html">Din Tai Fung</a> (at least the branch I visited in Tokyo)
+Let me cut to the chase: the pork dumplings here are the best soup dumplings I've had, period. Better than <a href="http://www.seriouseats.com/2012/02/is-din-tai-fung-the-gold-standard-for-soup-dumplings.html">Din Tai Fung</a> (at least the branch I visited in Tokyo), even (and at about a quarter of the price, I might add). Thin skins with just a slight bit of stretchy pull to them, tender, fatty pork with very minimal seasonings, and a broth with enough rich gelatin to get your lips sticky as you slurp them down.
+
+The broth itself has quite a bit of sweetness going on, and this is compounded by the excellent ginger sauce, made with young ginger&mdash;not too spicy&mdash;vinegar, and sugar.
+
+The crab and pork dumplings, which cost a premium, were also the best crab and pork soup dumplings I've had, but that's not saying much: crab soup dumplings inevitably taste like pre-cooked or canned crab with its unmistakable metallic, fishy tang. No thanks.
+
+With our bellies full of XLB, Adri and I headed across the street to number 97 for a taste of SJB.
+
+##Yang's Fry-Dumpling
+
+Another Shanghai institution, <a href="http://www.tripadvisor.com/Restaurant_Review-g308272-d1533218-Reviews-Yang_s_Fry_Dumpling-Shanghai.html">Yang's Fry-Dumpling</a> has the same business-first attitude that Jia Jia has, the difference being that at Yang's, you can't even sit until you've picked up your food, and then, only if there are seats available. Adri and I ate our fried pork dumplings standing outside, leaning over a garbage can to catch the juices that dripped down our chins.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-08.jpg "SJB dough")
 
+As at Jia Jia, you can watch the dumpling team at work as they stuff the buns.
+
+Right away, you notice a major difference between the two. While XLB dough is rolled out super-thin on a floured surface, SJB dough is rolled thicker, and its rolled with oil rather than flour, much in the same way that <a href="http://kenjilopezalt.github.io/2014/06/21/Rou-Jia-Bing%2C-Beijing-Yogurt%2C-and-Liang-Pi-%28You-Want-to-Eat-These%29/">Rou Jia Bing</a> and other semi-leavened steamed bread doughs are.
+
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-09.jpg "Crimping SJB")
+
+That said, the cooks are equally adept at stuffing and shaping the little dumplings, though the cooks at Yang's have an advantage: these buns are at least three times as large as a standard XLB.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-10.jpg "SJB in pan")
 
+Once formed, the dumplings go nipple-side-downinto a large cast iron pan where they fry for a few brief moments before the cook dumps hot water over them.
+
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-11.jpg "SJB covered")
+
+The pans are covered to allow the dumplings to steam through.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-12.jpg "Shaking SJB")
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-13.jpg "Ready-to-serve SJB")
+The dumplings cooks at Yang's work conveyer belt-style, shifting the pans along from one burner to the next as they go through each phase of the cooking process.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-14.jpg "Moving the SJB pan")
 
+Eventually, as the water steams away, the dumplings begin to sizzle again as their bottoms brown.
+
+![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-13.jpg "Ready-to-serve SJB")
+
+By the time they reach the front window, they're ready for a sprinkle of black sesame seeds and scallions before being piled into plastic clamshells to 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-16.jpg "Bitten SJB")
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-17.jpg "Adri XJB")

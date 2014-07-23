@@ -41,6 +41,10 @@ But then it occurred to me: Thai people are small. I'm no giant myself, but even
 
 That means that somewhere in Thailand, between Surat Thani and Bangkok, there is a shoe thief walking around with stolen sandals that are too beat-up for him to sell and too large for him to wear. Perhaps he'll dismantle them and sell them for parts.
 
+Luckily, I had a pair of hiking shoes in my pack so I can walk out of the train with something on my feet. But what if I hadn't had those shoes? Did the thief even think about that?
+
+If you're going to steal someone's shoes, you should at least have the common decency to leave a different pair behind.
+
 You know what the worst part is?
 
 I lent Adri my last pair of clean socks this morning, knowing that I'd just be wearing my sandals for the next couple days before we can do laundry again. Now it looks like I'm going to have to ride my sneakers bare-back, which, knowing the power of my feet, means that I've actually lost <em>two</em> pairs of shoes this morning.
