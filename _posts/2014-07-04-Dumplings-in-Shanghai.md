@@ -1,6 +1,6 @@
 ---
 layout: post
-title: DRAFT Eating Soup Dumplings in Shanghai? Xiao Long Bao are Only Half the Story
+title: Eating Soup Dumplings in Shanghai? Xiao Long Bao are Only Half the Story
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-15.jpg "Shanghai Dumplings")
@@ -97,9 +97,36 @@ Eventually, as the water steams away, the dumplings begin to sizzle again as the
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-13.jpg "Ready-to-serve SJB")
 
-By the time they reach the front window, they're ready for a sprinkle of black sesame seeds and scallions before being piled into plastic clamshells to 
+By the time they reach the front window, they're ready for a sprinkle of black sesame seeds and scallions before being piled into plastic clamshells to hand off to customers.
+
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-16.jpg "Bitten SJB")
+
+As with almost every other food experience I've had in China so far, these dumplings were pretty mindblowing, not only for hot awesome they were (and we'll get to that), but in how different they were from any version I'd had in the US.
+
+In the US, the SJB you find are almost always made of the same dough that is used to make <em>mantou</em>&mdash;those puffy, steamed buns. The result is dumplings with a rather thick wrapper, with little bubbles of air trapped inside it like a sponge. Take a look at the <a href="http://www.seriouseats.com/2011/12/pan-fried-juicy-pork-buns-shengjianbao-dim-sum-garden-philadelphia-pa.html" target="_blank">bottom photo in this post about the Pan Fried Juicy Pork Buns at Philly's Dim Sum Garden</a> for an idea of what I'm talking about.
+
+That spongy wrapper, in turn, soaks up internal juice like, well, like a sponge, which means that unless you eat <em>fast</em>, the delicious soup inside ends up saturating the dumpling walls and disappearing.
+
+The SJB at Yang's, on the other hand, have a much thinner skin with almost no leavening whatsoever. Its texture is not as elastic as a XLB, though its still pleasantly stretchy. The best part&mdash;aside from the soup inside, of course&mdash;is the crispy, crunchy, fried bottoms.
+
+If someone would just go ahead and come out with a deep-fried soup dumpling that's crisp all over, I'd appreciate it, ok?
+
+##Pro-Tip: Skip the Giant XLB
+
+You may have heard of the SOUP-DUMPLINGS-SO-BIG-YOU-NEED-A-STRAW-TO-DRINK-THE-SOUP-OUT-OF-THEM!!! that one can find in Shanghai. The restaurants that serve them mostly congregate around uber-touristy Yuyuan Bazaar south of the Bund. We headed there because ever since seeing them, Adri, a devout soup dumpling-lover, had to have one. After spotting a half dozen stores that sell them, we settled on one and ordered it.
+
+This was Adri's face upon tasting:
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-17.jpg "Adri XJB")
 
+Yeah... they're pretty terrible. The soup itself was bland with an old crab flavor. The dumpling skin is so thick and plastic-like as to be completely inedible&mdash;I suppose they need to be in order to hold up to the amount of soup inside.*
+
+<small>*a great illustration of the <a href="http://en.wikipedia.org/wiki/Square-cube_law">square-cube</a> law in action if ever there was one</small>
+
+We each had a couple of sips of bland broth, then tossed the rest away.
+
+If you really must have a large, beige, liquid-filled treat served with a straw in Shanghai, you're better off with this:
+
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140704-shanghai-restaurants-/dumplings/20140704-shanghai-dumpling-18.jpg "Adri coconut")
+
+Adri's also nuts about coconuts.
