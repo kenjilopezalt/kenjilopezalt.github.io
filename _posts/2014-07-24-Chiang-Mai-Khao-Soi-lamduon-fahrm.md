@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nong Khai&#58; Stellar Khao Soi at Lamduon Fahrm Kaosoi
+title: Chiang Mai&#58; Stellar Khao Soi at Lamduon Fahrm Kaosoi
 ---
 
 It's been a couple weeks since Adri and I left Chiang Mai, 
