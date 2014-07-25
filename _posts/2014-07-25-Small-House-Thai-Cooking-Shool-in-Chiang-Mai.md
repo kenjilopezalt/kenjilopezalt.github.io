@@ -1,6 +1,6 @@
 ---
 layout: post
-title: DRAFT Chiang Mai&#58; Northern Thai Lessons at Small House Thai Cooking School
+title: Chiang Mai&#58; Northern Thai Lessons at Small House Thai Cooking School
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Chiang-Mai/20140707-small-house-thai-cooking-school-/20140707-small-house-thai-cooking-school-1.jpg "Small House Thai Cooking School")
