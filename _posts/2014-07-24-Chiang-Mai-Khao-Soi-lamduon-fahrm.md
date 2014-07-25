@@ -1,7 +1,9 @@
 ---
 layout: post
-title: DRAFT Nong Khai&#58; Stellar Khao Soi at Lamduon Fahrm Kaosoi
+title: Nong Khai&#58; Stellar Khao Soi at Lamduon Fahrm Kaosoi
 ---
+
+It's been a couple weeks since Adri and I left Chiang Mai, 
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Chiang-Mai/lamduon-fahrm/20140706-chiang-mai-food-06.jpg "Lamduon Fahrm")
 
