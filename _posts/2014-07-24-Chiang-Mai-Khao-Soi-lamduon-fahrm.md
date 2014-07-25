@@ -69,6 +69,16 @@ Nam phrik is typically served with raw vegetables like eggplant or cabbage, alon
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Chiang-Mai/lamduon-fahrm/20140706-chiang-mai-food-10.jpg "Som tom")
 
+Som tom, a salad made by pounding shredded green unripe papaya together with chilies, dried shrimp, limes, garlic, tomatoes, long beans, carrots, peanuts, fish sauce, and sugar, is actually a Lao-influenced dish that comes from Northeastern region of Isan, but it's so damn good you'll find it everywhere.
+
+<em>Here</em> is where that hot/sour/salty/sweet thing really comes into play. The best som tom is an extreme mish-mash of flavors, each one overwhelmingly powerful on its own, but somehow balanced when taken together as a whole.
+
+It also happens to be one of the most consistently spicy dishes you'll find in a country that's packed with spicy food.
+
+Remember earlier when I said that the smile was plastered on Adri's face the entire time we were in Chiang Mai?
+
+I lied. She also made this face quite a lot:
+
 ![alt-text-here](http://kenjilopezalt.github.io/images/Chiang-Mai/lamduon-fahrm/20140706-chiang-mai-food-16.jpg "Spicy som tom")
 
-
+With its plastic tablecloths, mosquite-guarded condiment trays, and the occasional lizard crawling along your seat, Lamduon Fahrm ain't the restaurant to go to if creature comforts are your jam. Then again, if you can't be relaxed and groovy while simultaneously experience a lot of stifling heat and and bit of grime all served with a smile, then Chiang Mai probably isn't for you either.
