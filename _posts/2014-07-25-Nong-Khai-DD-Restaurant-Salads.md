@@ -5,7 +5,7 @@ title: Nong Khai&#58; Can't-Miss Issan Salads at DD Restaurant
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Nong-Khai/Food/dd-restaurant/20140711-isan-food-nong-khai-dd-restaurant-4.jpg "DD restaurant")
 
-Nong Khai, a small town in Northeastern Thailand on the banks of the Mekong river just across the border from Laos is not on the top of most tourstss must-visit lists. Being a border town, it gets a fair share of backpacker traffic, mostly just from folks passing through to Vientiane on the Lao side.
+Nong Khai, a small town in Northeastern Thailand on the banks of the Mekong river just across the border from Laos is not on the top of most tourists' must-visit lists. Being a border town, it gets a fair share of backpacker traffic, mostly just from folks passing through to Vientiane on the Lao side.
 
 Those folks are making a mistake.
 
@@ -31,7 +31,7 @@ That young ginger is the real key to the salad, with its mildly hot bite and cru
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Nong-Khai/Food/dd-restaurant/20140711-isan-food-nong-khai-dd-restaurant-2.jpg "DD restaurant")
 
-The spicy sliced beef salad is even spicier, with a dressing made with roasted dried chilies, fish sauce, and lime juice. The sliced beef is tossed with crispy slices of apple eggplant and mild Thai shallots. The kicker here is the slices of deep fried lemongrass. I've always loved the flavor of sliced lemongrass in dishes, but the texture can be a little fibrous or tough. Deep frying it solves that issue (and is a trick I'm going to adopt for home use in the future!).
+The sliced beef salad is even spicier, with a dressing made with roasted dried chilies, fish sauce, and lime juice. The sliced beef is tossed with crispy slices of apple eggplant and mild Thai shallots. The kicker here is the slices of deep fried lemongrass. I've always loved the flavor of sliced lemongrass in dishes, but the texture can be a little fibrous or tough. Deep frying it solves that issue (and is a trick I'm going to adopt for home use in the future!).
 
 We had a similarly delicious and porky experience with their crispy pork belly salad (we ordered it late at night and I didn't have my camera on me&mdash;sorry!), which was packed with Thai basil and mint.
 
