@@ -31,7 +31,7 @@ That young ginger is the real key to the salad, with its mildly hot bite and cru
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Nong-Khai/Food/dd-restaurant/20140711-isan-food-nong-khai-dd-restaurant-2.jpg "DD restaurant")
 
-The sliced beef salad is even spicier, with a dressing made with roasted dried chilies, fish sauce, and lime juice. The sliced beef is tossed with crispy slices of apple eggplant and mild Thai shallots. The kicker here is the slices of deep fried lemongrass. I've always loved the flavor of sliced lemongrass in dishes, but the texture can be a little fibrous or tough. Deep frying it solves that issue (and is a trick I'm going to adopt for home use in the future!).
+The sliced beef salad is even spicier, with a dressing made with roasted dried chilies, fish sauce, and lime juice. The beef is tossed with crispy slices of apple eggplant and mild Thai shallots. The kicker here is the slices of deep fried lemongrass. I've always loved the flavor of sliced lemongrass in dishes, but the texture can be a little fibrous or tough. Deep frying it solves that issue (and is a trick I'm going to adopt for home use in the future!).
 
 We had a similarly delicious and porky experience with their crispy pork belly salad (we ordered it late at night and I didn't have my camera on me&mdash;sorry!), which was packed with Thai basil and mint.
 
