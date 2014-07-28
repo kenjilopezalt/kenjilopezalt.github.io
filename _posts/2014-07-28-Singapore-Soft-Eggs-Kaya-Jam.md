@@ -13,11 +13,11 @@ This morning they took us out for one of Singapore's staple breakfasts: kaya toa
 
 The toast, made of thin-sliced soft white bread, is cooked over an open flame without any sort of fat, so it comes out a bit dry and crunchy, which is fine, as they use it to sandwich a massive amount of softened butter and kaya jam, a mildly sweet jam made with coconut, palm sugar, and eggs (check out <a href="http://www.seriouseats.com/recipes/2013/03/kaya-jam-recipe.html">Yvonne's recipe right here</a>). Even so, it helps to dip it into the super-soft boiled eggs that you break into a small dish on the side.
 
-For years, one of my favorite late night snacks has been a soft-cooked egg which I break into a bowl, drizzle with soy sauce and pepper, stir up, and slurp down. I always thought I was a little weird in loving it so much, so I felt a little vindicated this morning when I realized that I had an entire country full of soft-egg-and-soy-sauce-eating brethren on the other side of the planet.
+For years, one of my favorite late night snacks has been a soft-cooked egg which I break into a bowl, drizzle with soy sauce and pepper, stir up, and slurp down as silently as possible in the dim light of the kitchen, trying not to wake my wife. I always thought I was a little weird in loving it so much, so I felt a little vindicated this morning when I realized that I had an entire country full of soft-egg-and-soy-sauce-eating brethren on the other side of the planet.
 
 Perhaps I've belonged in Singapore all along.
 
-At home, I would use Japanese shoyu and either black pepper or red chilies. In Singapore, it's a combination of dark soy and light soy, along with white pepper, all left at the table for you to add at your own discretion.
+At home, I would use Japanese shoyu and either black pepper or red chilies (or occasionally <a href="http://www.seriouseats.com/images/2013/08/20130723-sansaire-17.jpg">a dash of Frank's hot sauce and a sprinkle of furikake</a>). In Singapore, it's a combination of dark soy and light soy, along with white pepper, all left at the table for you to add at your own discretion.
 
 There's not really all that much to this recipe beyond the <a href="http://www.seriouseats.com/recipes/2013/03/kaya-jam-recipe.html">kaya jam</a>, but the trick is getting the eggs exactly right&mdash;there should be no slimy transparent white left, but they should still be so soft that they can be stirred into a slurry with a spoon.
 
