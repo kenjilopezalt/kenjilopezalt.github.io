@@ -4,7 +4,7 @@ title: DRAFT Recipe Time!&#58; Spicy Chicken, Banana Blossom, and Herb Salad
 ---
 
 
-![alt-text-here](http://kenjilopezalt.github.io/images/20140728-banana-blossom-chicken-salad "Banana blossom salad")
+![alt-text-here](http://kenjilopezalt.github.io/images/20140728-banana-blossom-chicken-salad.jpg "Banana blossom salad")
 
 It's a rare day that goes by when I don't cook something (or more likely, a dozen of the same thing with slight variations each time). Other than the odd cooking class, I haven't cooked a single thing since leaving the U.S. nearly two months ago. I've been suffering from extreme withdrawal.
 
