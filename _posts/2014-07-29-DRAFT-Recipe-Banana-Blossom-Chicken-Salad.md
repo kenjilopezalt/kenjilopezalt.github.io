@@ -40,7 +40,9 @@ The last thing you should prepare is the banana blossom (did you know banana tre
 
 Though it's bitter when eaten straight after slicing, a 10-minute soak in cold water will wash away all of its astringency. You're left with a very mildly flavored, but nicely crunchy vegetable that forms an excellent salad base. (You should feel free to substitute it with cabbage if you can't find banana blossom).
 
-When making salads like this, It's important to dress things in the right order. 
+When making salads like this, It's important to dress things in the right order. I start with the chicken, which is the most absorptive and can benefit from a bit of extra time to soak up flavors between its fibers. Next I add the banana blossoms along with a handful of fresh herbs (mint and cilantro). Finally, I add the fried things just before serving, saving some to sprinkle over the salad, so that they retain at least a hint of their crunchiness.
+
+This is a salad that's pretty easy to like with easy, clean flavors, lots of friedness, and that classic hot-sour-salty-sweet thing that marks many of Northeast and Central Thailand's greatest dishes. It's not quite traditional in execution, but the spirit is there, and it's even more fun to eat it with good friends.
 
 ##Spicy Thai-Style Chicken, Banana Blossom, and Herb Salad
 
@@ -68,7 +70,7 @@ For the Fried Stuff
 
 For the Dressing
 * 4 to 10 Thai chilies (see note above)
-*
+* 3 tablespoons palm sugar (see note above)
 *
 *
 
