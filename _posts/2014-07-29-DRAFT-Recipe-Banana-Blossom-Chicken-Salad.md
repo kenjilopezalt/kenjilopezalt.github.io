@@ -57,10 +57,12 @@ Banana blossom can be found in East Asian or Indian grocery store. If unavailabl
 <strong>To prepare the banana blossom:</strong> To prepare banana blossoms, fill a large bowl with 3 quarts of water and add 1/4 cup of vinegar. Lay a clean kitchen towel or a layer of sturdy paper towels over the top. Peel off the tough outer later of leaves and discard. Split banana blossom in half lengthwise, then using a sharp chef's knife or a mandoline, slice crosswise as thin as possible. Immediately transfer sliced banana blossom to the bowl and lay the towel over it to keep it submerged. When ready to add to the salad, remove towel and carefully skim off and discard the tiny sliced buds (it's ok if a few of them remain). Dry sliced banana blossom on a clean kitchen towel or in a salad spinner and proceed.
 
 For the Chicken
+
 * 1 bone-in, skin-on chicken breast half
 * Kosher salt
 
 For the Fried Stuff
+
 * 1/2 cup vegetable, canola, or peanut oil
 * 3 medium European shallots or 6 to 8 Thai shallots, thinly sliced (about 1/2 cup, see note above)
 * 4 large cloves standard garlic or 8 to 12 cloves Thai garlic, roughly smashed in a mortar and pestle (about 3 tablespoons, see note above)
@@ -69,12 +71,14 @@ For the Fried Stuff
 * 1/2 cup raw peanuts
 
 For the Dressing
+
 * 4 to 10 Thai chilies (see note above)
 * 3 tablespoons palm sugar (see note above)
 *
 *
 
 For the Salad
+
 *
 *
 *
