@@ -1,6 +1,6 @@
 ---
 layout: post
-title: DRAFT Recipe Time!&#58; Spicy Chicken, Banana Blossom, and Herb Salad
+title: Recipe Time!&#58; Spicy Chicken, Banana Blossom, and Herb Salad
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140728-banana-blossom-chicken-salad.jpg "Banana blossom salad")
@@ -29,7 +29,7 @@ My version starts off similarly, but strays a bit. The first thing I did was to 
 
 Seeing as I already had a wok with hot oil in it, why stop there? I added a bunch of garlic cloves which I'd given a quick smash in the mortar and pestle, as well as some thinly sliced lemongrass. I had fried lemongrass for the first time in an <a href="http://www.seriouseats.com/recipes/2013/02/thai-style-fried-shallots.html">amazing beef salad I had in Nong Khai</a> on the NortheasternThai-Lao border. It has all the flavor of lemongrass, but with a much better texture.
 
-In Chiang Mai, in Thailand's North, I had a similar <a href="http://kenjilopezalt.github.io/2014/07/24/Chiang-Mai-Khao-Soi-lamduon-fahrm/">experience with fried makrut lime leaves</a>. Into the oil they went. Finally, I fried up some peanuts to form the flavor base for my dressing.
+In Chiang Mai, in Thailand's North, I had a similar <a href="http://kenjilopezalt.github.io/2014/07/24/Chiang-Mai-Khao-Soi-lamduon-fahrm/">experience with fried makrut lime leaves</a>. Into the oil they went. Finally, I fried up some peanuts to form the flavor base for my dressing. This left me with a bowl full of fried goodies (no Adri, those aren't for eating yet), and some flavorful oil to add to my dressing to boot.
 
 For the dressing, I decided to forgo the coconut milk&mdash;there's already plenty of richness going on here with the fried things&mdash;instead making sweet-spicy paste of garlic, chilies, and palm sugar (props to Hallam for some epic mortar and pestle-pounding), then thinning it out with fresh Calamansi lime juice and sugar.
 
@@ -73,11 +73,12 @@ Banana blossom can be found in East Asian or Indian grocery store. If unavailabl
 
 For the Dressing
 
-- 4 to 10 Thai chilies (see note above)
-- 2 large cloves standard garlic, or 4 to 6 cloves Thai garlic, peeled
+- 4 to 10 Thai chilies, roughly chopped (see note above)
+- 2 large cloves standard garlic, or 4 to 6 cloves Thai garlic, peeled, roughly chopped
 - 3 tablespoons palm sugar (see note above)
-- 2 tablespoons Thai fish sauce
-- 2 tablespoons fresh lime juice
+- 2 tablespoons Thai fish sauce, plus more to taste
+- 2 tablespoons fresh lime juice, plus more to taste
+- 1 tablespoon dried crushed Thai chili powder (or red chili flakes), plus more to taste
 
 For the Salad
 
@@ -87,8 +88,9 @@ For the Salad
 
 ###Instructions
 
-1. Place chicken in a small saucepan and cover with cold water. Season well with salt. Bring to a boil over medium-high heat, cover, and remove from heat. Let sit until an instant read thermometer inserted into the deepest part of the chicken registers 145°F, about 15 minutes. Transfer chicken to a bowl and allow to cool until cool enough to handle. Discard bones and skin. Shred meat into 1- to 2-inch pieces and set aside.
-2. Meanwhile, heat oil in a large wok over high heat until shimmering. Add shallots and cook, stirring constantly, until golden brown, about 2 minute. Quickly remove with a strainer or slotted spoon and transfer to a paper towel-lined bowl.
+1. <strong>For the Chickne:</strong>Place chicken in a small saucepan and cover with cold water. Season well with salt. Bring to a boil over medium-high heat, cover, and remove from heat. Let sit until an instant read thermometer inserted into the deepest part of the chicken registers 145°F, about 15 minutes. Transfer chicken to a bowl and allow to cool until cool enough to handle. Discard bones and skin. Shred meat into 1- to 2-inch pieces and set aside.
+2. <strong> For the Fried Stuff:</strong>Meanwhile, heat oil in a large wok over high heat until shimmering. Add shallots and cook, stirring constantly, until golden brown, about 2 minute. Quickly remove with a strainer or slotted spoon and transfer to a paper towel-lined bowl.
 3. Return oil to heat and repeat with garlic, followed by lemongrass, and lime leaves, adding each fried aromatic to the same bowl with the shallots. Season fried aromatics with salt and toss to combine.
 4. Add peanuts to oil, reduce heave to medium-low, and cook, stirring frequently, until golden brown, 3 to 4 minutes. Remove peanuts with a strainer or slotted spoon and transfer to a small bowl to cool. Set aside 2 tablespoons oil and allow to cool. Discard remaining oil.
-
+5. <strong>For the Dressing:</strong> Add thai chilies and garlic to the bottom of a mortar and pestle. Add 1/3 of palm sugar. Pound until a nearly smooth paste is formed (this will take a while, be patient). Add remaining palm sugar and pound until incorporated. Add peanuts and pound until roughly crushed. Add fish sauce, lime juice, and dried chilies and stir to incorporate.
+6. <strong>For the Salad:</strong> Add shredded chicken to the bottom of a large bowl. Add the dressing and reserved flavored oil from frying and toss to incorporate. Massage the chicken, gently loosening its fibers with your fingers. Add the chopped cilantro, mint, and banana blossom and toss to combine. Reserve two tablespoons mixed fried aromatics and add the rest to the bowl with the salad. Toss to combine, then taste and adjust flavor with more fish sauce, lime juice, or dried chilies as necessary. Transfer to a serving bowl, top with remaining fried aromatics, and serve immediately.
