@@ -3,7 +3,6 @@ layout: post
 title: DRAFT Recipe Time!&#58; Spicy Chicken, Banana Blossom, and Herb Salad
 ---
 
-
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140728-banana-blossom-chicken-salad.jpg "Banana blossom salad")
 
 It's a rare day that goes by when I don't cook something (or more likely, a dozen of the same thing with slight variations each time). Other than the odd cooking class, I haven't cooked a single thing since leaving the U.S. nearly two months ago. I've been suffering from extreme withdrawal.
@@ -46,6 +45,8 @@ This is a salad that's pretty easy to like with easy, clean flavors, lots of fri
 
 ##Spicy Thai-Style Chicken, Banana Blossom, and Herb Salad
 
+![alt-text-here](http://kenjilopezalt.github.io/images/20140728-banana-blossom-chicken-salad.jpg "Banana blossom salad")
+
 Serves 4
 
 <strong>Note:</strong> If possible, use smaller, sweeter Thai shallots and garlic for the recipe. If using Thai garlic, the skins can be left on the individual cloves when frying.  Makrut lime leaves (also sold as kaffir lime leaves) can be found in Thai supermarkets. Fresh lemongrass can be found in most Asian markets, or some high end Western supermarkets.
@@ -56,12 +57,12 @@ Banana blossom can be found in East Asian or Indian grocery store. If unavailabl
 
 <strong>To prepare the banana blossom:</strong> To prepare banana blossoms, fill a large bowl with 3 quarts of water and add 1/4 cup of vinegar. Lay a clean kitchen towel or a layer of sturdy paper towels over the top. Peel off the tough outer later of leaves and discard. Split banana blossom in half lengthwise, then using a sharp chef's knife or a mandoline, slice crosswise as thin as possible. Immediately transfer sliced banana blossom to the bowl and lay the towel over it to keep it submerged. When ready to add to the salad, remove towel and carefully skim off and discard the tiny sliced buds (it's ok if a few of them remain). Dry sliced banana blossom on a clean kitchen towel or in a salad spinner and proceed.
 
-For the Chicken
+###For the Chicken
 
 - 1 bone-in, skin-on chicken breast half
 - Kosher salt
 
-For the Fried Stuff
+###For the Fried Stuff
 
 - 1/2 cup vegetable, canola, or peanut oil
 - 3 medium European shallots or 6 to 8 Thai shallots, thinly sliced (about 1/2 cup, see note above)
@@ -72,14 +73,22 @@ For the Fried Stuff
 
 For the Dressing
 
-* 4 to 10 Thai chilies (see note above)
-* 3 tablespoons palm sugar (see note above)
-*
-*
+- 4 to 10 Thai chilies (see note above)
+- 2 large cloves standard garlic, or 4 to 6 cloves Thai garlic, peeled
+- 3 tablespoons palm sugar (see note above)
+- 2 tablespoons Thai fish sauce
+- 2 tablespoons fresh lime juice
 
 For the Salad
 
-*
-*
-*
-*
+- 1/3 cup roughly chopped fresh cliantro leaves
+- 1/3 cup roughly chopped fresh mint leaves
+- 1 banana blossom, thinly sliced (about 4 cups, see instructions above)
+
+###Instructions
+
+1. Place chicken in a small saucepan and cover with cold water. Season well with salt. Bring to a boil over medium-high heat, cover, and remove from heat. Let sit until an instant read thermometer inserted into the deepest part of the chicken registers 145°F, about 15 minutes. Transfer chicken to a bowl and allow to cool until cool enough to handle. Discard bones and skin. Shred meat into 1- to 2-inch pieces and set aside.
+2. Meanwhile, heat oil in a large wok over high heat until shimmering. Add shallots and cook, stirring constantly, until golden brown, about 2 minute. Quickly remove with a strainer or slotted spoon and transfer to a paper towel-lined bowl.
+3. Return oil to heat and repeat with garlic, followed by lemongrass, and lime leaves, adding each fried aromatic to the same bowl with the shallots. Season fried aromatics with salt and toss to combine.
+4. Add peanuts to oil, reduce heave to medium-low, and cook, stirring frequently, until golden brown, 3 to 4 minutes. Remove peanuts with a strainer or slotted spoon and transfer to a small bowl to cool. Set aside 2 tablespoons oil and allow to cool. Discard remaining oil.
+
