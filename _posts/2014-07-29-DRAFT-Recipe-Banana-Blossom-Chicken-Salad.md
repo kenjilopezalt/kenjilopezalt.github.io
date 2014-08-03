@@ -58,17 +58,17 @@ Banana blossom can be found in East Asian or Indian grocery store. If unavailabl
 
 For the Chicken
 
-* 1 bone-in, skin-on chicken breast half
-* Kosher salt
+- 1 bone-in, skin-on chicken breast half
+- Kosher salt
 
 For the Fried Stuff
 
-* 1/2 cup vegetable, canola, or peanut oil
-* 3 medium European shallots or 6 to 8 Thai shallots, thinly sliced (about 1/2 cup, see note above)
-* 4 large cloves standard garlic or 8 to 12 cloves Thai garlic, roughly smashed in a mortar and pestle (about 3 tablespoons, see note above)
-* 2 stalks fresh lemongrass, outer leaves removed, pale lower 4-inches only, thinly sliced crosswise (about 1/4 cup, see note above) 
-* 4 makrut lime leaves, stems discarded, sliced as thinly as possible
-* 1/2 cup raw peanuts
+- 1/2 cup vegetable, canola, or peanut oil
+- 3 medium European shallots or 6 to 8 Thai shallots, thinly sliced (about 1/2 cup, see note above)
+- 4 large cloves standard garlic or 8 to 12 cloves Thai garlic, roughly smashed in a mortar and pestle (about 3 tablespoons, see note above)
+- 2 stalks fresh lemongrass, outer leaves removed, pale lower 4-inches only, thinly sliced crosswise (about 1/4 cup, see note above) 
+- 4 makrut lime leaves, stems discarded, sliced as thinly as possible
+- 1/2 cup raw peanuts
 
 For the Dressing
 
