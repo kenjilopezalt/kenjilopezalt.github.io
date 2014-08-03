@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Recipe Time!&#58; Spicy Chicken, Banana Blossom, and Herb Salad
+title: Recipe&#58; Thai-Style Spicy Chicken, Banana Blossom, and Herb Salad (With Lots of Fried Things)
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140728-banana-blossom-chicken-salad.jpg "Banana blossom salad")
@@ -43,7 +43,7 @@ When making salads like this, It's important to dress things in the right order.
 
 This is a salad that's pretty easy to like with easy, clean flavors, lots of friedness, and that classic hot-sour-salty-sweet thing that marks many of Northeast and Central Thailand's greatest dishes. It's not quite traditional in execution, but the spirit is there, and it's even more fun to eat it with good friends.
 
-##Spicy Thai-Style Chicken, Banana Blossom, and Herb Salad
+##Spicy Thai-Style Chicken, Banana Blossom, and Herb Salad (With Lots of Fried Things)
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140728-banana-blossom-chicken-salad.jpg "Banana blossom salad")
 
@@ -71,7 +71,7 @@ Banana blossom can be found in East Asian or Indian grocery store. If unavailabl
 - 4 makrut lime leaves, stems discarded, sliced as thinly as possible
 - 1/2 cup raw peanuts
 
-For the Dressing
+###For the Dressing
 
 - 4 to 10 Thai chilies, roughly chopped (see note above)
 - 2 large cloves standard garlic, or 4 to 6 cloves Thai garlic, peeled, roughly chopped
@@ -80,7 +80,7 @@ For the Dressing
 - 2 tablespoons fresh lime juice, plus more to taste
 - 1 tablespoon dried crushed Thai chili powder (or red chili flakes), plus more to taste
 
-For the Salad
+###For the Salad
 
 - 1/3 cup roughly chopped fresh cliantro leaves
 - 1/3 cup roughly chopped fresh mint leaves
