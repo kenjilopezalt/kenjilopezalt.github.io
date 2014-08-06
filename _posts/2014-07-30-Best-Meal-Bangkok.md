@@ -21,7 +21,7 @@ We were warned by the lady selling the mangoes that they were out of the best on
 
 You know mango sticky rice from Thai restaurants in the states&mdash;sliced mango served on top of sticky rice with sweet-and-salty coconut cream and puffed rice crisps&mdash;but you haventt had it until you've had it with the incredibly sweet and luscious Thai honey mangoes. This version, made with three colors of sticky rice, comes from a small shop across the street from Soi 38, an alley downtown famous for its (comparatively mediocre) food stalls.
 
-Special thanks to Bangkok native and <a href="">Serious Eats' Thai food columnist Leela TK</a> for sending us here (along with the other great recommendations she gave us)
+Special thanks to Bangkok native and <a href="http://www.seriouseats.com/user/profile/SheSimmers">Serious Eats' Thai food columnist Leela Punyaratabandhu</a> for sending us here (along with the other great recommendations she gave us)
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Bangkok/20140729-bangkok-street-market-food-/20140729-bangkok-street-market-food-04.jpg "fried pork belly")
 
@@ -59,7 +59,7 @@ The mangosteen, known as the Queen of Fruit, happens to be my favorite fruit of 
 
 You eat them by scoring the thick, astringent purple skin then carefully prying it open, revealing tender, segmented white flesh inside. If you do it well, the white segments will pop right out of the skin and you can eat it whole, savoring the mildly sweet, very fragrant flesh, spitting out the one or two large seeds it contains.
 
-(You can find a whole lot more photos of Bangkok street food <a href="TK">in this post from a previous trip</a>)
+(You can find a whole lot more photos of Bangkok street food <a href="http://www.seriouseats.com/2011/06/snapshots-from-thailand-street-food-in-bangkok.html">in this post from a previous trip</a>)
 
 ##The Best
 
