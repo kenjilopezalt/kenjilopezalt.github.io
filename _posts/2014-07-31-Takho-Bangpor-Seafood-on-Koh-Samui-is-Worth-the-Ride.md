@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bangpo Takho Seafood 
+title: Bangpo Takho Seafood: The Best Fresh Seafood in Koh Samui
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/20140720-koh-samui-bangpor-seafood-takho-/20140720-koh-samui-bangpor-seafood-takho-09.jpg "full table")
