@@ -23,7 +23,7 @@ Most Javanese food can attribute its relative simplicity to the fact that it's a
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Indonesia/Jogja/20140802-Jogja-martabak-egg-pancake-roti-sweet-02.jpg "Martabak")
 
-According to <a href="http://www.amazon.com/Street-Food-around-World-Encyclopedia/dp/1598849549">Bruce Kraig's Encyclopedic Street Food Around the World</a> Martabak may actually trace its origins to the Middle Eats. In Arabic, <em>mutabbaq</em> means "folded," a reference to the way in which the soft, stretchy dough is folded around a stuffing as it cooks.
+According to <a href="http://www.amazon.com/Street-Food-around-World-Encyclopedia/dp/1598849549/?tag=serieats-20">Bruce Kraig's Encyclopedic Street Food Around the World</a>, Martabak may actually trace its origins to the Middle East. In Arabic, <em>mutabbaq</em> means "folded," a reference to the way in which the soft, stretchy dough is folded around a stuffing as it cooks.
 
 It, and dishes like it, are found all over Middle East and Southeast Asia. Have you seen <a href="http://sweets.seriouseats.com/2013/01/best-sweets-we-ate-in-january-slideshow.html">those guys making banana roti</a> in the touristy parts of Bangkok or Chiang Mai? Then you know what martabak is.
 
