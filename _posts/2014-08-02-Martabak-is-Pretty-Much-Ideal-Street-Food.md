@@ -81,7 +81,7 @@ The sweet version starts with a thin, eggy batter very much like pancake batter.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Indonesia/Jogja/20140802-Jogja-martabak-egg-pancake-roti-sweet-17.jpg "Martabak")
 
-It then gets carefully flipped out of the pan and topped with a variety of options. The most popular seems to be the simplest: a thick spread of bright yellow margarine, followed by a layer of the bitter chocolate sprinkles known as <a href="http://sweets.seriouseats.com/2011/12/eating-sprinkles-the-dutch-way-hagelslag-on-bread.html">hagelslag</em> in Holland, a clear influence of Indonesia's Dutch colonial history.
+It then gets carefully flipped out of the pan and topped with a variety of options. The most popular seems to be the simplest: a thick spread of bright yellow margarine, followed by a layer of the bitter chocolate sprinkles known as <a href="http://sweets.seriouseats.com/2011/12/eating-sprinkles-the-dutch-way-hagelslag-on-bread.html">hagelslag</a> in Holland, a clear influence of Indonesia's Dutch colonial history.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Indonesia/Jogja/20140802-Jogja-martabak-egg-pancake-roti-sweet-18.jpg "Martabak")
 
