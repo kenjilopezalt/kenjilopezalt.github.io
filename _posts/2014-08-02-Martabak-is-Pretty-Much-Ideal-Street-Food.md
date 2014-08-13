@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Sweet or Savory, Martabak is the Kind of Indonesian Street Food
+title: Sweet or Savory, Martabak is the King of Indonesian Street Food
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Indonesia/Jogja/20140802-Jogja-martabak-egg-pancake-roti-sweet-01.jpg "Martabak")
