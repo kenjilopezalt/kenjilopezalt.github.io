@@ -9,7 +9,7 @@ I've got to admit something: I'm not a huge fan of the food in Java, the most po
 
 Adri and I came to Indonesia with an open mind and open mouths, but dish after dish left us thinking <em>I wish this just had a little more acid</em>, or <em>I wish the meat weren't <strong>quite</strong> so dry</em> or <em>why the heck is there so much palm sugar and low quality sweet soy sauce in this?</em>
 
-Though the one we kept coming back to was <em>man, I wish this had been prepared fresh instead of sitting around all day and being served lukewarm.</em>
+Though the one we kept coming back to was <em>man, I wish this had been prepared fresh instead of sitting around all day and served lukewarm.</em>
 
 There's a time and a place for lukewarm food. Day-old pizza for breakfast and cold fried chicken with a hangover come to mind, but after a few days in Yogyakarta eating everything from from cold pre-fried <em>lumpia</em> (spring rolls) to <em>mie ayam</em>&mdash;bowls of chicken soup served with lifeless pre-cooked noodles that'd make a Chinese street vendor weep&mdash;to the jackfruit and egg stew known as <em>gudeg</em> (which comes out warm only because the rice it's served on is kept hot in a steamer), I yearned for something served hot, fresh, and cooked to order.
 
