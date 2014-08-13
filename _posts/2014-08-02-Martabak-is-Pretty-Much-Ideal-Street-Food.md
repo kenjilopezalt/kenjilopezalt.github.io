@@ -99,7 +99,7 @@ I'm not much of a sweet eater, but this kicked some serious butt.
 
 It's pretty fantastic. You spend the equivalent of a buck or two, and end up with a couple dozen crisp and salty or sweet and gooey squares custom-made for sharing and late night drinking.
 
-Last week, after a late-night food craving got me up out of bed, leaving a sleeping wife behind,in our hotel near Bali's north boast in our hotel near Bali's north boast, I wandered toward a tiny night market where the martabak man was the last vendor standing, serving the young hotel and bar staff making their way home on their motorbikes.
+Last week, after a late-night food craving got me up out of bed, leaving a sleeping wife behind in our hotel near Bali's north coast, I wandered toward a tiny night market where the martabak man was the last vendor standing, serving the young hotel and bar staff making their way home on their motorbikes.
 
 As I grabbed up my boxes of martabak and started walking back, a group of guys sitting by the side of the road with a busted old guitar in hand called me over to join them. I sat down while one of the guys emptied a hip flask of arak, the local firewater made with palm sugar, into an empty water bottle before topping it up with beer and tonic water and passing it around. We ended up sitting up for hours, drinking his arak-beer cocktail and picking at the martabak.
 
