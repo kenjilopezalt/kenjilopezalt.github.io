@@ -1,6 +1,6 @@
 ---
 layout: post
-title: The Best Sate We Ate in Singapore, Malaysia, and Indonesia
+title: DRAFT The Best Sate We Ate in Singapore, Malaysia, and Indonesia
 ---
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Sate/20140804-sate-bali-2.jpg "Bali")
