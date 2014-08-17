@@ -9,9 +9,18 @@ Adri and I <a href="http://kenjilopezalt.github.io/2014/06/17/Beijing-bound/">ma
 
 This one simple rule has served us well, delivering us to everything from <a href="http://kenjilopezalt.github.io/2014/06/18/SO-MANY-DUMPLINGS/">steamed buns</A> to <a href="http://kenjilopezalt.github.io/2014/06/19/The-Forbidden-City-and-Good-God-are-Jian-Bing-Awesome/>jian bing</a> to <a href="http://kenjilopezalt.github.io/2014/06/21/The-Secret-to-Good-Cheap-Eating/">noodles and dumplings</a>, but nowhere has it been as useful as it's been in the Singapore-Indonesia-Malayasia triangle, where sate delivers its smoke signals from nearly every alleyway you walk by.
 
-##Satay in Singapore
+We all know what it is, right? Little chunks of marinated meat threaded onto bamboo skewers, grilled over coals until charred, then served with a sweet-and-spicy peanut-based dipping sauce? Heck, even Chipotle's <a href="http://shophousekitchen.com/">Asian-themed chain Shophouse Kitchen</a> has a version on the menu
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Sate/20140730-sate-singapore-02.jpg "Singapore")
+
+As it turns out, that basic description is really only the tiny tip of a vast iceberg of regional variations in both preparation and sauce. You'll find goat satay that's been braised before grilling in Sumatra, or bright yellow satay made with chicken skin in Melaka. You'll get minced meat satay grilled on lemongrass in Bali or 
+
+I've had a tough time locating definitive sources on the exact history of sate, but most seem to agree that it was brought to SouthEast Asia by arab traders in the 15th century, and that it shares its origins with kebab and shawarma, which in turn are related to all of the skewered meats in China and India, and indeed the entire diaspora of meat-on-a-stick from the Middle East.
+
+The variety of sate (spelled "satay" in Singapore and parts of Malaysia)
+
+##Satay in Singapore
+
 
 We were severely chastised by K.F. Seetoh, Singaporean food guru and the man behind <a href="http://www.makansutra.com/">Makansutra</a>, the go-to guide for Singapore eats, when I told him that we had been to Lau Pa Sat, a food center located in Singapore's central business district.
 
