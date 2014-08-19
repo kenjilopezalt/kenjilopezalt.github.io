@@ -11,15 +11,15 @@ This one simple rule has served us well, delivering us to everything from <a hre
 
 We all know what it is, right? Little chunks of marinated meat threaded onto bamboo skewers, grilled over coals until charred, then served with a sweet-and-spicy peanut-based dipping sauce? You'l find it in Indonesian and Malaysian restaurants around the globe, or perhaps in the appetizer section of more cosmopolitan family restsarautns and buffets. Heck, even Chipotle's <a href="http://shophousekitchen.com/">Asian-themed chain Shophouse Kitchen</a> has a version on the menu.
 
-But all the Sizzling Sate with Extreme Peanut Dipping Sauce™ in the world can't prepare you for the depth, variety, and sheer volume of sate you'll find in its home countries. 
+But all the Sizzling Sate with Extreme Peanut Dipping Sauce™ in the world can't prepare you for the depth, variety, and sheer volume of sate you'll find in its home countries. What we know in the states is really only the tiny tip of a vast iceberg of regional variations in both preparation and sauce.
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Sate/20140730-sate-singapore-02.jpg "Singapore")
 
-That basic description is really only the tiny tip of a vast iceberg of regional variations in both preparation and sauce. You'll find goat sate that's been braised before grilling in Sumatra, or bright yellow sate made with chicken skin in Melaka. You'll get minced pork sate flavored with coconut and chilies and grilled on lemongrass in Bali or sweet and savory prawn sate with a mild, chunky peanut sauce in Singapore.
+You'll find goat sate that's been braised before grilling in Sumatra, or bright yellow sate made with chicken skin in Melaka. You'll get minced pork sate flavored with coconut and chilies and grilled on lemongrass in Bali or sweet and savory prawn sate with a mild, chunky peanut sauce in Singapore.
 
-I've had a tough time locating definitive sources on the exact history of sate, but most seem to agree that it was brought to Southeast Asia by arab traders in the 15th century, where the Indonesian island of Java became its Asian epicenter. It shares its origins with kebab and shawarma, which in turn are related to all of the skewered meats in China and India, and indeed the entire diaspora of meat-on-a-stick from the Middle East.
+I've had a tough time locating definitive sources on the exact history of sate, but most seem to agree that it was brought to Southeast Asia by Arab traders in the 15th century, where the Indonesian island of Java became its Asian epicenter. It shares its origins with kebab and shawarma, which in turn are related to all of the skewered meats in China and India, and indeed the entire diaspora of meat-on-a-stick from the Middle East.
 
-Nearly all sate is made with a similar technique: tiny piece of meat are slid onto small bamboo skewers (often with chunks of  fat in between to help keep them moist during cooking). The meat is then marinated&mdash;whether in a sweet soy and peanut marinade, or a coconut and spice marinade, or a million variations in between. When a customer places an order,* the grill man grabs a handful of skewers and lines them up on a specially made grill that gets the meat to within inches of glowing hot coals.
+Nearly all sate is made with a similar technique: tiny piece of meat are slid onto small bamboo skewers (often with chunks of  fat in between to help keep them moist during cooking). The meat is then marinated, whether in a sweet soy and peanut marinade, or a coconut and spice marinade, or a million variations in between. When a customer places an order,* the grill man grabs a handful of skewers and lines them up on a specially made grill that gets the meat to within inches of glowing hot coals.
 
 <small>*some of the lesser sate spots may pre-grill their meat and reheat to order. You want to avoid this, as it invariably results in dryer meat.</small>
 
@@ -33,8 +33,7 @@ As the sate grills, the cook may perform a number of secondary operations: Brush
 
 But that didn't stop us from trying. Here are a few of our favorites.
 
-##Satay in Singapore
-
+##Our Favorite Satay in Singapore
 
 We were severely chastised by K.F. Seetoh, Singaporean food guru and the man behind <a href="http://www.makansutra.com/">Makansutra</a>, the go-to guide for Singapore eats, when I told him that we had been to Lau Pa Sat, a food center located in Singapore's central business district.
 
@@ -57,7 +56,7 @@ The primary reason to visit Lau Pa Sat is for the satay stalls, which set up in 
 For the record, there's a good chance you'll see a long line for stall number 7/8
 
 
-## Melaka
+## Our Favorite Satay in Melaka
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Sate/20140730-sate-melaka-1.jpg "Melaka")
 
@@ -69,7 +68,7 @@ For the record, there's a good chance you'll see a long line for stall number 7/
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Sate/20140730-sate-melaka-5.jpg "Melaka")
 
-##Jogja
+##Our Favorite Sate in Jogja
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Sate/20140802-jojgakarta-indonesia-sate-1.jpg "Jogja")
 
@@ -77,7 +76,7 @@ For the record, there's a good chance you'll see a long line for stall number 7/
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Sate/20140802-jojgakarta-indonesia-sate-3.jpg "Jogja")
 
-##Bali
+##Our Favorite Sate in Bali
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Sate/20140804-sate-lilit-bali-1.jpg "Sate lilit")
 
