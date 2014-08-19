@@ -9,15 +9,29 @@ Adri and I <a href="http://kenjilopezalt.github.io/2014/06/17/Beijing-bound/">ma
 
 This one simple rule has served us well, delivering us to everything from <a href="http://kenjilopezalt.github.io/2014/06/18/SO-MANY-DUMPLINGS/">steamed buns</A> to <a href="http://kenjilopezalt.github.io/2014/06/19/The-Forbidden-City-and-Good-God-are-Jian-Bing-Awesome/>jian bing</a> to <a href="http://kenjilopezalt.github.io/2014/06/21/The-Secret-to-Good-Cheap-Eating/">noodles and dumplings</a>, but nowhere has it been as useful as it's been in the Singapore-Indonesia-Malayasia triangle, where sate delivers its smoke signals from nearly every alleyway you walk by.
 
-We all know what it is, right? Little chunks of marinated meat threaded onto bamboo skewers, grilled over coals until charred, then served with a sweet-and-spicy peanut-based dipping sauce? Heck, even Chipotle's <a href="http://shophousekitchen.com/">Asian-themed chain Shophouse Kitchen</a> has a version on the menu
+We all know what it is, right? Little chunks of marinated meat threaded onto bamboo skewers, grilled over coals until charred, then served with a sweet-and-spicy peanut-based dipping sauce? You'l find it in Indonesian and Malaysian restaurants around the globe, or perhaps in the appetizer section of more cosmopolitan family restsarautns and buffets. Heck, even Chipotle's <a href="http://shophousekitchen.com/">Asian-themed chain Shophouse Kitchen</a> has a version on the menu.
+
+But all the Sizzling Sate with Extreme Peanut Dipping Sauce™ in the world can't prepare you for the depth, variety, and sheer volume of sate you'll find in its home countries. 
 
 ![alt-text-here](http://kenjilopezalt.github.io/images/Sate/20140730-sate-singapore-02.jpg "Singapore")
 
-As it turns out, that basic description is really only the tiny tip of a vast iceberg of regional variations in both preparation and sauce. You'll find goat satay that's been braised before grilling in Sumatra, or bright yellow satay made with chicken skin in Melaka. You'll get minced meat satay grilled on lemongrass in Bali or 
+That basic description is really only the tiny tip of a vast iceberg of regional variations in both preparation and sauce. You'll find goat sate that's been braised before grilling in Sumatra, or bright yellow sate made with chicken skin in Melaka. You'll get minced pork sate flavored with coconut and chilies and grilled on lemongrass in Bali or sweet and savory prawn sate with a mild, chunky peanut sauce in Singapore.
 
-I've had a tough time locating definitive sources on the exact history of sate, but most seem to agree that it was brought to SouthEast Asia by arab traders in the 15th century, and that it shares its origins with kebab and shawarma, which in turn are related to all of the skewered meats in China and India, and indeed the entire diaspora of meat-on-a-stick from the Middle East.
+I've had a tough time locating definitive sources on the exact history of sate, but most seem to agree that it was brought to Southeast Asia by arab traders in the 15th century, where the Indonesian island of Java became its Asian epicenter. It shares its origins with kebab and shawarma, which in turn are related to all of the skewered meats in China and India, and indeed the entire diaspora of meat-on-a-stick from the Middle East.
 
-The variety of sate (spelled "satay" in Singapore and parts of Malaysia)
+Nearly all sate is made with a similar technique: tiny piece of meat are slid onto small bamboo skewers (often with chunks of  fat in between to help keep them moist during cooking). The meat is then marinated&mdash;whether in a sweet soy and peanut marinade, or a coconut and spice marinade, or a million variations in between. When a customer places an order,* the grill man grabs a handful of skewers and lines them up on a specially made grill that gets the meat to within inches of glowing hot coals.
+
+<small>*some of the lesser sate spots may pre-grill their meat and reheat to order. You want to avoid this, as it invariably results in dryer meat.</small>
+
+Normally, this is a bad idea: dripping fat and juices catch on fire, flare up, and leave a sooty deposit on the meat. How do they avoid this?
+
+By rapidly and continuously fanning the hot coals with a fan. More traditional spots will use a bamboo fan, though I've seen some enterprising sate cooks employing an electric fan. The fanning serves the dual purpose of not only keeping the flames away from the meat, but also of helping the coals to burn hotter, giving the sate a crisply charred exterior with no burnt or sooty flavors.
+
+![alt-text-here](http://kenjilopezalt.github.io/images/Sate/20140730-sate-singapore-11.jpg "Singapore")
+
+As the sate grills, the cook may perform a number of secondary operations: Brushing with extra sauce or oil, or sprinkling with a spice mixture are all common, though not required. After the meat is finished cooking, the sticks are gathered up and placed on a plate or in a paper cone and handed over along with either a cup or a drizzle of sauce. At every stage in the process&mdash;selecting the meat, marinating, grilling, seasoning, and saucing&mdash;variation is possible. Attempting to taste all of sate's variations is a near-impossible task, let alone catalogue them.
+
+But that didn't stop us from trying. Here are a few of our favorites.
 
 ##Satay in Singapore
 
@@ -42,7 +56,6 @@ The primary reason to visit Lau Pa Sat is for the satay stalls, which set up in 
 
 For the record, there's a good chance you'll see a long line for stall number 7/8
 
-![alt-text-here](http://kenjilopezalt.github.io/images/Sate/20140730-sate-singapore-11.jpg "Singapore")
 
 ## Melaka
 
